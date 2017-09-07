@@ -1,0 +1,35 @@
+# Site settings
+title: qarabas
+header-img: img/favela-banner.jpg
+email: vysybyl+qarabas@gmail.com
+copyright_name: qarabas
+description: "Write your site description here. It will be used as your sites meta description as well!"
+baseurl: ""
+url: "http://yourdomain.com"
+# twitter_username: SBootstrap
+github_username:  vysybyl
+# facebook_username:  StartBootstrap
+email_username:  vysybyl+qarabas@gmail.com
+
+# Configurable links for home 
+t:
+  en:
+    home:  "/"
+  it:
+    home:  "/_pages/index_it/"
+  pt:
+    home:  "/_pages/index_pt/"
+
+# Google Analytics
+# To enable google analytics, uncomment below line with a valid Google Tracking ID
+# google_tracking_id:
+
+# Build settings
+markdown: kramdown
+highlighter: rouge
+permalink: pretty
+paginate: 5
+include: ["_pages"]
+exclude: ["less","node_modules","Gruntfile.js","package.json","README.md"]
+
+gems: [jekyll-paginate, jekyll-feed]

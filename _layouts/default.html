@@ -1,0 +1,20 @@
+<!DOCTYPE html>
+<html lang="en">
+
+{% assign pages=site.pages | where:"lang", page.lang %}
+
+{% include head.html %}
+
+<body>
+
+    {% include nav.html %}
+
+    {{ content }}
+
+    {% include footer.html %}
+
+    {% include ga.html %}
+
+</body>
+
+</html>
