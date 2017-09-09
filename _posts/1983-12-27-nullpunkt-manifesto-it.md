@@ -50,6 +50,6 @@ Esistono tuttavia fluttuazioni energetiche i cui effetti non ci è dato preveder
 Tutto ciò è certo osservando l'esistenza a partire dal punto nullo.
 
 
-[^1]: Serve sempre un punto di partenza perché, come diceva Aristotele, non si può voler definire tutto. Il Nullpunkt Manifesto è stato sognato ad occhi aperti nelle notti insonni di molti anni. È una dedica silente per tutti coloro che soffrono come se avessero coltelli appuntiti a lacerargli il cervello.
+[^1]: Serve sempre un punto di partenza perché, come diceva Aristotele, non si può voler definire tutto. Il Nullpunkt Manifesto è stato sognato ad occhi aperti nelle notti insonni di molti anni. È una dedica silente per tutti coloro che soffrono come se tutti i coltelli lacerassero loro il cervello.
 
 [^2]: Persino in un sistema totalmente determinato, la descrizione apre un punto di rottura. Si può sempre scrivere.

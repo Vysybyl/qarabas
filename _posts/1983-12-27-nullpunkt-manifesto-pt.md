@@ -51,6 +51,6 @@ Tudo isto está seguro se observar-mos a existência a partir do ponto nulo.
 
 Tudo isto está seguro se observarmos a existência a partir do ponto nulo.
 
-[^1]: É sempre necessário um ponto de partida, porque, como dizia Aristóteles, não é possível definir tudo. O Nullpunkt Manifesto foi sonhado de olhos abertos através de noites sem dormir, por muitos anos. Trata-se de uma dedicatória silenciosa para todos os que sofrem como se tivessem facas pontiagudas a lacerar-lhes o cérebro. 
+[^1]: É sempre necessário um ponto de partida, porque, como dizia Aristóteles, não é possível definir tudo. O Nullpunkt Manifesto foi sonhado de olhos abertos através de noites sem dormir, por muitos anos. Trata-se de uma dedicatória silenciosa para todos os que sofrem como se todas as facas lhes dilacerassem o cérebro. 
 
 [^2]: Até num sistema totalmente determinado, a descrição abre um ponto de rotura. Pode-se sempre escrever.
