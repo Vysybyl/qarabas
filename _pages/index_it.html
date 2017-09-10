@@ -24,17 +24,33 @@ description: "blog"
 {% endfor %}
 
 <!-- Pager -->
-{% if paginator.total_pages > 1 %}
 <ul class="pager">
-    {% if paginator.previous_page %}
+{% for post in site.posts %}
+  {% if post.lang == page.lang %}
+    {% if prev %}
     <li class="previous">
-        <a href="{{ paginator.previous_page_path | prepend: site.baseurl | replace: '//', '/' }}">&larr; Newer Posts</a>
+        <a href="{{ post.url | prepend: site.baseurl | replace: '//', '/' }}">&larr; Newer Posts</a>
     </li>
     {% endif %}
-    {% if paginator.next_page %}
+    {% assign prev = false %}
+    {% if post.id == page.id %}
+      {% assign prev = true %}
+    {% endif %}
+  {% endif %}
+{% endfor %}
+
+{% for post in site.posts reversed %}
+  {% if post.lang == page.lang %}
+    {% if next %}
     <li class="next">
-        <a href="{{ paginator.next_page_path | prepend: site.baseurl | replace: '//', '/' }}">Older Posts &rarr;</a>
+        <a href="{{ post.url | prepend: site.baseurl | replace: '//', '/' }}">Older Posts &rarr;</a>
     </li>
+      {% break %}
     {% endif %}
+    {% assign next = false %}
+    {% if post.id == page.id %}
+      {% assign next = true %}
+    {% endif %}
+  {% endif %}
+{% endfor %}
 </ul>
-{% endif %}

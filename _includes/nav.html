@@ -45,6 +45,18 @@
 
                 {% assign previous = trans.lang %}   
                 {% endfor %}
+
+                {% assign post_translations=site.posts | where:"ref", page.ref | sort: 'lang' %}
+                {% for trans in post_translations %}
+                <!-- this is a patch -->
+                {% unless trans.lang == previous %}
+                    <li>
+                        <a href="{{ site.baseurl | append: trans.url | replace: '//', '/' }}" class="{{ trans.lang }}">{{ trans.lang }}</a>
+                    </li>
+                {% endunless %}
+
+                {% assign previous = trans.lang %}   
+                {% endfor %}
                 </ul>
                 </li>
             </ul>
