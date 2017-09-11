@@ -66,7 +66,7 @@ Lei parla per entrambi: "Io sento che siamo più amici che altro".
 #### *Colhendo lírio p'ra enfeitar seu lar[^song]*
 
 
-[^song]: Trad: *Oggi ho visto la madre Oxum alla cascata / seduta sulla riva del fiume / a raccogliere lirii, lirilè / a raccogliere lirii, lirilà / a raccogliere lirii per decorare la sua casa*.         
-         La versione corretta è: *Eu vi mamã Oxum na cacholeira / sentada na beira do rio / colhendo lírio, lírio lê / colhendo lírio, lírio lá / colhendo lírio para enfeitar seu congá* (*Ho visto mamma Oxum alla cascata / ... / a raccogliere lirii per decorare il suo altare* )
+[^song]: Trad: *Oggi ho visto la madre Oxum alla cascata / seduta sulla riva del fiume / a raccogliere liri, lirilè / a raccogliere liri, lirilà / a raccogliere liri per decorare la sua casa*.         
+         La versione corretta è: *Eu vi mamã Oxum na cacholeira / sentada na beira do rio / colhendo lírio, lírio lê / colhendo lírio, lírio lá / colhendo lírio para enfeitar seu congá* (trad: *Ho visto mamma Oxum alla cascata / ... / a raccogliere liri per decorare il suo altare* )
 
 
