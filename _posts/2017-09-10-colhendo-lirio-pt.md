@@ -16,7 +16,7 @@ Estivemos no parque hoje. Entrámos com as bicicletas poucos minutos antes do fe
 
 Arranjei casa. Uma vivenda grande demais para uma pessoa só. Mas enquanto o meu colega não voltar tenho-a toda para mim. Uma cama, uma mesa para trabalhar e agora um cheirinho a pau-santo. Ah, e tem um sonho de cama de rede a baloiçar no alpendre. A mala continua feita e as minhas coisas espalhadas no chão do quarto, mas irei conseguir sonhar e criar aqui e a favela não fica muito longe.
 
-A favela de Carabás ocupa todo o vale e a colina atrás da casa da Y. e continua do outro lado. Estava à espera de paredes e telhados de chapa numa confusão total, mas encontro uma pequena aldeia colorida bastante mais bonita da cidade que a rodeia. A Y. explica-me: "Quando chegámos a favela acabava lá em baixo. Aqui tinha só descampado". Os prédios baixos de tijolo subiram a encosta até à vedeação do nosso. Muitas partes parecem estar ainda em construção: uma armação de tábuas aqui, umas vigas de ferro espetadas para o ar acolá. "Muitos deles são pedreiros, os mesmos que controẽm os edifícios 'oficiáis' no resto da cidade. Eles próprios têm o conhecimento para construir tudo isto". 
+A favela de Carabás ocupa todo o vale e a colina atrás da casa da Y. e continua do outro lado. Estava à espera de paredes e telhados de chapa numa confusão total, mas encontro uma pequena aldeia colorida bastante mais bonita da cidade que a rodeia. A Y. explica-me: "Quando chegàmos a favela acabava lá em baixo. Aqui tinha só descampado". Os prédios baixos de tijolo subiram a encosta até à vedeação do nosso. Muitas partes parecem estar ainda em construção: uma cofragem de tábuas aqui, umas vigas de ferro espetadas para o ar acolá. "Muitos deles são pedreiros, os mesmos que controẽm os edifícios 'oficiáis' no resto da cidade. Eles próprios têm o conhecimento para construir tudo isto". 
 
 Espanto ao ver tantas luzes e pergunto-me como é possível a favela ter acesso à rede eléctrica. Também há música aos altos berros durante a maioria do dia e parte da noite. A Y. não sabe bem responder, mas os fios que saem dos postes parecem puxadas artesanáis. Será que o que a empresa perde para alimentar gratuitamente estas lâmpadas e rádios não vale tanto quanto mandar alguém para cortar tudo? Há entre bairro e favela muita menos discontinuidade de que imaginava.
 
@@ -24,7 +24,7 @@ No entanto, quando os donos dos terrenos decidem recuperá-los ou quando a cidad
 
 "Você veio por causa de mim?"
 
-Da porta da minha nova casa são precisos cinco minutos para subir até a uma praceta de onde se veem os prédios altos do centro. Visitámos um deles ao final da tarde, depois do parque fechar. Têm uns enormes cartazes pendurados na fachada. As cancelas da entrada estão presas por correntes e para entrar tivemos que falar com um tipo que tinha na mão um walkie-talkie e registar os nossos nomes num caderno. Nunca vi uma ocupação tão bem organizada. 
+Da porta da minha nova casa são precisos cinco minutos para subir até a uma praceta de onde se veem os prédios altos do centro. Visitámos um deles ao final da tarde, depois do parque fechar. Tem uns enormes cartazes pendurados na fachada. As cancelas da entrada estão presas por correntes e para entrar tivemos que falar com um tipo que tinha na mão um walkie-talkie e registar os nossos nomes num caderno. Nunca vi uma ocupação tão bem organizada. 
 
 "Comunicação e segurança é o mais importante" explica-nos a moça que nos fará de guia. O prédio tem página no facebook.
 
@@ -39,6 +39,7 @@ Ao sair, cruzámos-nos com umas crianças de talvez quatro ou cinco anos.
 Os da favela e os ocupas têm um nullpunkt totalmente diferente do meu. Só consigo preencher o hiato entre nós com um certo sentido de culpa: eu ando aqui a inventar-me histórias románticas, posso viajar pelo mundo fora e trabalhar aonde quiser enquanto eles comem balas. Sei que este sentimento só vem de mim e não acrescenta nada à história, mas não encontro outro.
 
 "Consigo ver as histórias todas: a minha, a da minha família, a tua, a dos meus antepassados e dos meus amigos, aquelas dos moradores da favela... E não sei o que fazer com elas. Não vão dar-me o calor de um abraço nem vão encontrar uma casa para os da ocupação. Parecem-me inúteis" disse à Y. na gelataria.
+
 "Mas estas histórias existem para serem contadas. A menina vai ser operada e voltar a sorrir porque alguém contou sua história".
 
 A noite cai rápido aqui. Não anoitece, desliga.
