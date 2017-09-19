@@ -12,7 +12,7 @@ My bike can take me anywhere but I haven't been able to catch the sunset yet.
 
 I was waiting for Y. in her car the other day. Some kids sneaked out of the favela and started playing around the car. I got out and lean on it, crossing my arms and staring at the moon which was getting bigger. I couldn't understand their accent. The sun was gone already. I smiled while a part of me was still suspicious of thei activity. I felt ashamed and didn't look at them directly. Their noise grew.
 
-All of a sudden Y. is on the other side of the car, talking with a short old man about the beauty of the night. He renews his invitation: "You should come next Saturday!". We get into the car. Y. is delighted and exclaims "My God!". I realize she's staring through my window. For the first time I see a white horse crowded with kids passing a few steps from me. "Are you blind?" say Y. and my mind together. The moon shines and the old man is gone.
+All of a sudden Y. is on the other side of the car, talking with a short old man about the beauty of the night. He renews his invitation: "You should come next Saturday!" We get into the car. Y. is delighted and exclaims "My God!" I realize she's staring through my window. For the first time I see a white horse crowded with kids passing a few steps from me. "Are you blind?" say Y. and my mind together. The moon shines and the old man is gone.
 
 My bike is light and fast. During the day it's white, but at night my eyes see silver.
 
