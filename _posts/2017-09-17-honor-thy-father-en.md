@@ -41,4 +41,4 @@ After some minutes I feel exhausted and I want water. I fell down into myself an
 The first line I read is enough. I smile to the man and say: "May I talk to you?"
 
 
-[^homeless]: The Brazilian Portuguese for homeless is *moradores de rua* - literally "inhabitant of the street" - while the European translation is *sem-abrigo* - "shelterless"
+[^homeless]: The Brazilian Portuguese for homeless is *morador de rua* - literally "inhabitant of the street" - while the European translation is *sem-abrigo* - "shelterless"
