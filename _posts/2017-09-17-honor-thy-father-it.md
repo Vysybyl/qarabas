@@ -10,7 +10,7 @@ header-img: "img/call.jpg"
 
 La mia bici può portarmi dappertutto ma non sono ancora riuscito a vedere il tramonto.
 
-L'altro giorno stavo aspettando Y. nella sua macchina. Alcuni ragazzi sono sgattaiolati fuori dalla favela e hanno cominciato a giocare attorno all'auto. Sono uscito e mi ci sono appoggiato, incrociando le braccia e fissando la luna che s'ingrandiva. Non potevo capire il loro accento. Il sole era già tramontato. Ho sorriso mentre una parte di me non si fidava delle loro faccende. Mi sono vergognato e non gli ho guardati direttamente. Il loro baccano è cresciuto.
+L'altro giorno stavo aspettando Y. nella sua macchina. Alcuni ragazzi sono sgattaiolati fuori dalla favela e hanno cominciato a giocare attorno all'auto. Sono uscito e mi ci sono appoggiato, incrociando le braccia e fissando la luna che s'ingrandiva. Non potevo capire il loro accento. Il sole era già tramontato. Ho sorriso mentre una parte di me ancora non si fidava della loro attività. Mi sono vergognato e non gli ho guardati direttamente. Il loro baccano è cresciuto.
 
 All'improvviso Y. è dall'altro lato dell'auto che parla della bellezza della notte con un vecchio basso. Lui rinnova l'invito: "Venite il prossimo sabato!" Entriamo in macchina. Y. appare deliziata ed esclama "Oh mio Dio!" Mi rendo conto che sta fissando qualcosa attraverso il mio finestrino. Per la prima volta vedo un cavallo bianco gremito di bimbi passare a pochi passi da me. "Sei cieco?" chiedono Y. e la mia mente assieme. La luna brilla e il vecchio se n'è andato.
 
