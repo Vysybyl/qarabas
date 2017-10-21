@@ -1,7 +1,7 @@
 ---
 layout:     post
 ref:		ousadia
-lang: 		it
+lang: 		en
 title:      "Audacity"
 subtitle:   "The serious risk of writing"
 date:       2017-09-19 12:00:00
