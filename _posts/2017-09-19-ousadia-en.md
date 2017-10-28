@@ -10,9 +10,9 @@ header-img: "img/ousadia.jpg"
 
 The man in front of me is slim and has got an egg-shaped face. He's leaning on the chair with a relaxed look, half complacent, but his eyes and smile when he greets me are humble and kind.
 
-- It's an audacity[^ousadia] - he confesses as soon as I confirm that he's the author. His first book.
+ - It's an audacity[^ousadia] - he confesses as soon as I confirm that he's the author. His first book.
 
-- In which sense? What is at stake?
+ - In which sense? What is at stake?
 
 - The risk is the one that the written word always carries with itself. It's a mirror for the one who writes. We end up uncovering a side of ourselves which we couldn't access in any other way.
 
