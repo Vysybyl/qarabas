@@ -16,7 +16,7 @@ The man in front of me is slim and has got an egg-shaped face. He's leaning on t
 
 \- The risk is the one that the written word always carries with itself. It's a mirror for the one who writes. We end up uncovering a side of ourselves which we couldn't access in any other way.
 
-\- But it's a mirror for reader too, isn't it?
+\- But it's a mirror for the reader too, isn't it?
 
 \- Yes, of course. Writing has the power of showing us a glimpse of ourselves, an echo... And even who writes ends up revealing himself.
 
@@ -24,7 +24,7 @@ The man in front of me is slim and has got an egg-shaped face. He's leaning on t
 
 \- That one too.
 
-\- But it's also the risk to be misunderstood. There always exists the risk that the reader mistake the author for his invention.
+\- But it's also the risk to be misunderstood. There always exists the risk that the reader mistakes the author for his invention.
 
 \- Yes.
 
