@@ -8,7 +8,7 @@ date:       2017-09-19 12:00:00
 header-img: "img/ousadia.jpg"
 ---
 
-L'uomo che mi trovo davanti è smilzo e ha il viso ovale. È allungato sulla sedia con un'aria rilassata, mezzo compiaciuta, ma gli occhi e il sorriso con cui mi saluta sono umili e gentili.
+L'uomo che mi trovo dava nti è smilzo e ha il viso ovale. È allungato sulla sedia con un'aria rilassata, mezzo compiaciuta, ma gli occhi e il sorriso con cui mi saluta sono umili e gentili.
 
 \- È un'audacia[^ousadia] - confessa appena confermo che è lui l'autore. Il suo primo libro.
 
