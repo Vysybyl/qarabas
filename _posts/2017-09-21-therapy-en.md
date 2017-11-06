@@ -24,11 +24,11 @@ I record silence for the most but in the end I feel better. I call the Uber.
 
 "What?" I almost never understand the first time they talk to me.
 
-"Would you like the AC on? Some water?"
+"Do you want the AC on? Some water?"
 
 "No, no AC thanks. Do you have water?"
 
-He hands me a plastic cup sealed with aluminum foil. It's cold but not too much. The driver wears glasses and has grizzled hair, short.
+He hands me a plastic cup sealed with aluminium foil. It's cold but not too much. The driver wears glasses and has grizzled hair, short.
 
 The car is following an avenue that cuts the city in half. In another country it would be a highway. I always feel that some sort of intimacy arises when you share a car. I had some of the best talks in Lisbon with taxi drivers, even when I was sober. This is my second Uber.
 
@@ -73,7 +73,7 @@ The therapist greeted me, made me sit and asked me how I got to know the place a
 
 It's the same old dream that made me contact Y. the first time. Everything seems connected.
 
-The therapist listens, asks me if I already knew about Tantra when I had the dream, gives me a general explanation of the practice's phylosophy and purposes and tell me what will happen during the session; then tells me to lay on the mattress. I drop the clothes on a chair and position myself on the bed facing the ceiling.
+The therapist listens, asks me if I already knew about Tantra when I had the dream, gives me a general explanation of the practice's philosophy and purposes and tells me what will happen during the session; then tells me to lay on the mattress. I drop the clothes on a chair and position myself on the bed facing the ceiling.
 
 "You must breathe deeply, in a cycle, with no pauses. Imagine that the inbreath and the outbreath are like sea waves coming and going"
 
@@ -87,7 +87,7 @@ I close my eyes.
 
 I kept them closed for a while even after it was all over. I had to stop the respiration a couple of times to try to gather some water in my mouth and swallow it to moist my dry throat. 
 
-While the music volume went down, I regained control over my body. I was overwhelmed by the feelings and I wanted to hug the therapist. I could still feel the two presences on my left and right side. They haven't shown up for several month and now they were back. They seemed to have sprung out of my last floating ribs when the therapist's hands reached them. I recognized the male one on my right as my grandfather. The points from where they have raised are still tickly: as I touch them I laugh a heavy laughter and shake a bit. I'm experiencing a state I've only witnessed in others before. Something feminine.
+While the music volume went down, I regained control over my body. I was overwhelmed by feelings and I wanted to hug the therapist. I could still feel the two presences on my left and right side. They had't shown up for several months and now they were back. They seemed to have sprung out of my last floating ribs when the therapist's hands reached them. I recognized the male one on my right as my grandfather. The points from where they have raised are still tickly: as I touch them I laugh a heavy laughter and shake a bit. I'm experiencing a state I've only witnessed in others before. Something feminine.
 I am flooded with joy. My heart is light and open with clarity. I wish everybody was able to live this condition.
 
 The core of my experience was not physical but emotional. During the session I felt an excruciating pain for the loss of the loved ones. Not just the people I miss, but the grief of my friends, my father and my family. I mourned the grandfather I have never known (the one whose presence still inhabited the room) and tapped the pain my parents must have felt when they lost their parents. 
@@ -104,4 +104,4 @@ Having a child is a statement of acceptance of mortality and finiteness. So my f
 
 ***
 
-I wash myself in the near bathroom and I put the clothes back on. The price of the service, that I have avoided to ask, offends me. I do not have enough money with me. While I ride to the ATM, in some part of me malice regains ground and judges coldly everything that has just happened.
+I wash myself in the near bathroom and I put the clothes back on. The price of the service, that I have avoided to ask, offends me. I do not have enough money with me. While I ride the bike to the ATM, in some part of me malice regains ground and judges coldly everything that has just happened.
