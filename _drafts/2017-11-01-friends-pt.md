@@ -1,28 +1,30 @@
 ---
 layout:     post
 ref:		friends
-lang: 		it
-title:      "Niente acqua"
+lang: 		pt
+title:      "Não há água"
 subtitle:   ""
 date:       2017-11-01 12:00:00
 header-img: "img/friends.jpg"
 ---
 
-La città ci accoglie grigia e senza orizzonte. Y. ha rimediato un appartamento solo per noi, in una zona residenziale vicino al parco ("vicino" vuol dire venti minuti a piedi) in un quartiere che potrebbe essere centrale.
+A cidade nos recebe cinzenta e sem horizonte. A Y. arranjou um apartamento só para nós, numa zona residencial junto ao parque ("junto" quer dizer vintes minutos a pé) num bairro que poderia ser central.
 
-Per la prima volta viviamo su un palcoscenico da coppia. 
+Pela primeira vez vivemos em um palco de casal.
 
-Siamo amici. Litighiamo quindi da buoni amici, parlando in silenzio, di ritorno dal ristorante consigliatoci. Lascio crescere il muro senza accorgermene, con una facilità che ora mi appare disgustosa, e mi lascio atterrare al di là di esso, imprigionato nelle rotaie dei miei grandi pensieri. 
+Somos amigos. Discutimos então como bons amigos, a falar em silêncio, de regresso do restaurante aconselhado. Deixo crescer o muro sem me dar conta, com uma facilidade que agora me aparece nojenta, e me deixo aterrar além dele, preso nos carrís dos meus grandes pensamentos.
 
-Parliamo davvero solo una volta a casa, seduti su cuscini disposti sul tappeto di corda davanti al divano - trascurato nella sua funzione principale.
+Falamos deverás só uma vez em casa, sentados em almofadas arrumadas no tapete de corda à frente do sofá - desleixado na sua função principal.
 
-Fuori piove quasi ininterrottamente e in casa non c'è acqua. La proprietaria, amica di Y., è irreperibile. Io mi sento scocciato come un ragazzino viziato ma riesco a nasconderlo solo a parole. Il problema non è nei rubinetti. 
+Fora chove quase ininterruptamente e na casa não há água. A dona, amiga da Y., está incontactável. Eu sinto-me chateado como um rapazinho mimado mas consigo escondé-lo só por palavras. O problema não está nas torneiras.
 
-Non so chi parla per primo. Y., credo. Cerco di dare e di ricevere un abbraccio o una carezza e Y. da bravo specchio mi allontana. Mi sento manipolatore e sbagliato. Meschino. So che ha ragione.
+Não sei quem fala primeiro. A Y., acho. Tento dar e receber um abraço ou um mimo e a Y. afasta-me como um bom espelho. Sinto-me manipulador e errado. Torpe. Sei que tem razão.
 
-Ci sono delle scuse reciproche che suonano più come un "siamo lontani, siamo lontani..." La metropoli ci circonda, ci fissa aspettando i nostri movimenti. Ho fallito. Non so cosa ma ho fallito.
+Há uma troca de desculpas que soam mais como um "estamos longe, estamos longe..." A metrópole rodeia-nos, fita-nos à espera dos nossos movimentos. Falhei. Não sei o que mas falhei.
 
-Y. è di là che si prepara a uscire da sola. Ho nel petto una tristezza sconvolgente. Mi butto sul divano e comincio ad ansimare con gli occhi sbarrati. L'aria dentro e fuori come le onde del mare. La pioggia fuori. Per terra accanto a quel divano Y. ha condiviso con me l'ascolto di un messaggio di suo papà. O forse lo condividerà, non ricordo più la cronologia. Persino al parco sono stato tre volte.
+Y. está na outra sala a preparar-se para sair sozinha. Tenho no peito uma tristeza esmagadora. Deito-me no sofá e começo a ofegar com os olhos esbugalhados. O ar dentro e fora como ondas do mar. A chuva lá fora. No chão junto àquele sofá a Y. partilhou comigo uma mensagem do seu papai. O talvez a irá partilhar, não lembro mais a cronologia. Até no parque fui três vezes.
+
+Estou a pensar no meu pai. A respiração tornou-se num 
 
 Sto pensando a mio padre. Il respiro si è fatto gemito ripetuto e so che Y. lo può sentire. La odio per non accorrere alla mia disperazione. Non sto più giocando! Penso ancora a mio padre, a quest'omino che ha attraversato due continenti e un paese senza parlare altra lingua che la sua. Penso che la sua storia non potrà mai essere raccontata, perché ogni volta che l'ho interrogato mi ha dato versioni diverse, frammentarie e contrastanti: morirà con lui. Non viene ancora Y.?! Vedo quest'omino sbagliato sacrificarsi per me e per i suoi figli come i grand'uomini si sacrificano per delle idee. Anni. Non lo capisco. Nemmeno un libro.
 
