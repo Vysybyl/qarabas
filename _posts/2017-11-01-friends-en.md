@@ -20,7 +20,7 @@ Outside it's raining almost uninterruptedly and there is no water in the house. 
 
 I don't know who speaks first. Y., I guess. I try to give and get a hug or a caress and Y. pushes me away as a good mirror. I feel manipulative and wrong. Despicable. I know she's right.
 
-There are some exchanged apologies which sound more like "we are far, we are far..." The metropolis surrouds us, stares at us waiting for our movements. I have failed. I do not know what but I have failed.
+There are some exchanged apologies which sound more like "we are far apart, we are far apart..." The metropolis surrouds us, stares at us waiting for our movements. I have failed. I do not know what but I have failed.
 
 Y. is in the other room preparing to get out by herself. I feel on my chest an overwhelming sadness. I drop on the couch and I start gasping bug-eyed. The air in and out as sea waves. The rain outside. On the floor next to that couch Y. shared with me the listening of a message from her dad. Or will share, I don't remember the chronology anymore. I even went to the park three times. 
 
