@@ -1,40 +1,42 @@
 ---
 layout:     post
 ref:		kulumbu
-lang: 		it
-title:      "Kulumbù"
-subtitle:   "Le libertà"
+lang: 		pt
+title:      "Kulumbú"
+subtitle:   "As liberdades"
 date:       2017-10-07 12:00:00
 header-img: "img/kulumbu.jpg"
 ---
 
-A volte gruppi di schiavi in fuga si rifugiavano in zone remote fondando piccoli villaggi nascosti; alcuni di questi esistono ancora oggi. 
+Às vezes grupos de escravos em fuga abrigavam-se em zonas remotas e fundavam pequenas aldeias escondidas; algumas delas continuam ainda hoje. 
 
-Quello che chiamo Kulumbù è un ecovillaggio sulla costa, situato tra un'immensa piantagione di noci di cocco e la foce di un piccolo fiume a due ore di marcia dal paese più vicino. Vi arrivo in un'ora sulla jeep navetta pagando quattro volte il prezzo medio per la stessa distanza su un autobus di linea. Conosco due tipi di comunità: gli squat e quelle che sopravvivono spremendo i visitatori. Kulumbù sembra del secondo tipo.
+O que chamo de Kulumbú é uma eco-vila na costa, situada entre uma imensa plantação de coco e a foz de um pequeno rio a duas horas a pé da aldeia mais próxima. Chego lá em uma hora num jeep de transporte, pagando quatro vezes o preço médio pela mesma distância num autocarro público. Conheço dois tipos de comunidades: os *squats* e aquelas que sobrevivem a espremer os visitantes. Kulumbú parece do segundo tipo.
 
-Assieme a me sulla jeep ci sono tre donne che stanno seguendo un corso di crescita personale al villaggio e una coppia, Tex e Domitille. Lei l'ho incrociata prima di salire sulla navetta in un negozio di dolci. L'ho aiutata a prendere un liquore dall'ultimo scaffale, gesto a cui a risposto con un "grazie" biondo e un po' sdegnoso - molto francese, ho pensato. Invece facciamo amicizia mentre i bagagli vengono sistemati sul tetto dell'auto, e scopro che sono entrambi sudamericani. Mi siedo dietro con Tex.
+No jeep comigo há três mulheres que estão a seguir um curso de desenvolvimento pessoal na vila e um casal, Tex e Domitille. Cruzei-me com ela antes de entrar no transporte numa loja de doces. Ajudara-a a apanhar um licor da última prateleira; a esse gesto ela respondeu com um "obrigado" loiro e um pouco mal-educado - muito francês, pensei eu. Pelo contrário, fazemos amizade enquanto as bagagem são colocadas no tejadilho do carro, e descubre serem ambos sul-americanos. Sento-me atrás com o Tex.
 
-Sono alto, ma in confronto a lui mi sento gracile. Ha la pelle cotta da varie stagioni di surf e una sorta di cicatrice sotto l'occhio destro di cui non chiederò la storia. Tra gli scossoni della macchina, cercando di fare leva con le gambe per non essere troppo sballottati, parliamo di cose pratiche: lavoro, connessioni internet in zone remote, bioedilizia. È avvocato, mi dice, e sta anche lui lavorando a distanza. Condividiamo qualche dubbio sulla buonafede del sistema economico di Kulumbù.
+Sou alto, mas comparado com ele sinto-me grácil. Tem a pele assada por várias estações de surf e uma espécie de cicatriz debaixo do olho direito da qual não irei perguntar a história. Entre os abanões do carro, tentando alavancar com as pernas para não sermos  sacudidos tanto, falamos em coisas práticas: trabalho, ligações internet em zonas remotas, bio-contrucção. É advogado, conta-me, e ele também está a trabalhar à distância. Partilhamos algumas dúvidas sobre a boa-fé do sistema económico de Kulumbú.
 
-Quando arriviamo devono essere le sette ed è già notte. Mi ritrovo rapidamente solo. Le due ragazze alla reception non sembrano particolarmente interessate ad aiutarmi, ma ho una mappa disegnata sul diario, la luce del cellulare e le istruzioni per raggiungere la casa dove si trova la stanza che ho affittato, in fondo al villaggio. Le costruzioni sono tutte di uno o due piani, circondate da tratti ampi di vegetazione più o meno fitta. Dopo una decina di minuti raggiungo un gruppo di tre case. Scarto quella con la lavatrice ("abbiamo solo il lavatoio" ricordo che mi ha detto la mia ospite) e mi dirigo alla seconda. È quella giusta. 
+Quando chegamos devem ser sete horas e já está de noite. Encontro-me rapidamente sozinho. As duas raparigas na recepção não aparentam estar particularmente interessadas em ajudar-me, mas tenho um mapa desenhado no diário, a luz do telemóvel e as instruções para alcançar onde fica o quarto que tenho alugado, no fundo da aldeia. Todas as construções são de um ou dois andares, rodeadas por amplos troços de vegetação mais ou menos densa. Depois de uns dez minutos alcanço um grupo de três casas. Excluo aquela com mâquina-de-lavar ("só temos o tanque", lembro que me disse a minha hospedeira) e dirijo-me para a segunda. É aquela certa.
 
-La giungla di notte fa un gran baccano.
-
----
-
-I miei giorni a Kulumbù scorrono troppo veloci. Stare sette o otto ore al PC mi risulta molto difficile dopo aver visto la foce e il mare. Le zanzare non mi danno tregua e, dopo aver sperato nell'infinito potere dell'olio essenziale di lavanda, finisco per usare una camicia a maniche lunghe, pantaloni e calze per tutto il tempo che passo al lavoro. A fine pomeriggio mi cambio e mi butto in acqua.
-
-La vita del villaggio è strettamente legata al ritmo del sole: alle dieci sono già tutti a dormire; nonostante ciò riesco a farmi un bagno al giorno, qualche buona chiacchierata con i miei ospiti e un po' di meditazione guidata in una delle tende comuni. Forse per il mio sguardo diffidente, sento di non essere cercato da chi mi sta attorno. Neppure con Tex e Domi riesco ad incontrarmi tutti i giorni. La solitudine è grande ma piena e viva. Non è disperazione urbana. 
-
-Le mie braccia magre sotto la doccia sembrano appartenere a un corpo non mio. L'acqua è calda e con la luna nuova le pareti si popolano di insetti, una mantide, un millepiedi e qualche falena. Non so i nomi di tutti gli animali che mi possono mordere.
-
-La notte spesso la casa rimane vuota. Mi arrischio ad aprire le grandi porte a vetri che danno sul giardino scuro. Sdraiato nell'amaca, suono piano qualche scala greca e orientale.
+A selva a noite faz bué barulho.
 
 ---
 
-È solo il penultimo giorno, un sabato, che ho tempo per una ricognizione completa. Dopo aver lavorato ancora qualche ora di mattina, mi aggiro per il villaggio con lo zaino in spalla. Mi hanno avvisato dei furti (l'ultimo è accaduto due notti prima) e per questo mi tengo stretto il mio Dell di cinque chili sul groppone; anche quando entro in acqua sotto un cielo che minaccia pioggia lego lo zaino a una panchina e lo posiziono in modo che il suo arancione spento sia visibile anche da lontano. 
+Os meus dias em Kulumbú passam rápido demais. Ficar sete ou oito horas ao PC resulta muito difícil depois de ter visto a foz e o mar. As melgas não me dão descanço e, depois de ter confiado no poder infinito do ólio essencial de alfazema, acabo por utilizar uma camisa de mangas cumpridas, calças e meias por todo o tempo que passo trabalhando. Ao final da tarde troco-me e deito-me para a água.
 
-"Due o tre *capanga* con un paio di pistole potrebbero passare al pettine tutto il villaggio, casa per casa, prima che arrivi la polizia" ha detto Tex menzionando il fatto che la casa dove dormono non ha serrature. La mia neppure. Viene dalla metropoli, lui, ed è avvocato.
+A vida da vila está estritamente ligada ao ritmo do sol: às dez já estão todos a dormir; contudo, consigo dar um mergulho por dia, ter uns bons bate-papos com os meus hospedeiros e um pouco de meditação guiada numa das tendas comuns. Talvez por causa do meu olhar desconfiado, sinto não ser procurado por quem me rodeia. Nem sequer com o Tex e a Domi consigo encontrar-me todos os dias. A solidão é grande mas plena e viva. Não é desespero urbano.
+
+Os meus braços magros no  duche parecem pertencer a um corpo alheio. A água está quente e com a lua nova as paredes populam-se de insectos, um louva-a-deus, um mil patas e umas traças. Não sei os nomes de todos os animais que me podem morder.
+
+Muitas vezes à noite a casa fica vazia. Atrevo-me a abrir as grandes portadas de vidro que dão acesso ao jardim escuro. Deitado na cama-de-rede, toco baixo umas escalas gregas e orientáis.
+
+---
+
+É só no penúltimo dia, um sábado, que tenho tempo para uma perlustração completa. Depois de ter trabalhado umas horas de manhã, vagueio pela aldeia com a mochila às costas. Avisaram-me dos roubos (o último aconteceu duas noites antes) e por isso agarro-me bem ao meu Dell de cinco quilo no dorso; mesmo quando entro na água debaixo de um céu que ameaça chuva, ato a mochila a um banco e coloco-a de modo a que o seu laranja abafado seja visível mesmo de longe.
+
+"Dois ou três capangas com um par de pistolas poderia passar a pente toda a vila, casa por casa, antes da polícia chegar" disse o Tex 
+
+"Due o tre *capanga* con un paio di pistole potrebbero passare al pettine tutto il villaggio, casa per casa, prima che arrivi la polizia" ha detto Ney menzionando il fatto che la casa dove dormono non ha serrature. La mia neppure. Viene dalla metropoli, lui, ed è avvocato.
 
 Quel giorno li incontro alla foce. Spiego a Domi la ricetta del tiramisù mentre stiamo a mollo guazzando nell'acqua tiepida, ma ripartiamo tutti la mattina dopo e io voglio dare un ultimo sguardo a quest'oceano.
 
