@@ -68,7 +68,7 @@ Mar, mar e ainda mar. O seu corpo e o meu comunicam como aqueles de dois amantes
 
 "Estou aqui!" - e a potência doce das ondas
 
-"Estou aqui!" - que me ladra contra
+"Estou aqui!" - que rosna contra de mim
 
 "Estou aqui!" - condensa-se nesta afirmação
 
