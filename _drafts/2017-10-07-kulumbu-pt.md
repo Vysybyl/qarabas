@@ -32,53 +32,51 @@ Muitas vezes à noite a casa fica vazia. Atrevo-me a abrir as grandes portadas d
 
 ---
 
-É só no penúltimo dia, um sábado, que tenho tempo para uma perlustração completa. Depois de ter trabalhado umas horas de manhã, vagueio pela aldeia com a mochila às costas. Avisaram-me dos roubos (o último aconteceu duas noites antes) e por isso agarro-me bem ao meu Dell de cinco quilo no dorso; mesmo quando entro na água debaixo de um céu que ameaça chuva, ato a mochila a um banco e coloco-a de modo a que o seu laranja abafado seja visível mesmo de longe.
+É só no penúltimo dia, um sábado, que tenho tempo para uma perlustração completa. Depois de ter trabalhado umas horas de manhã, vagueio pela aldeia com a mochila às costas. Avisaram-me dos roubos (o último aconteceu duas noites antes) e por isso agarro-me bem ao meu Dell de cinco quilo no dorso; mesmo quando entro na água debaixo de um céu que ameaça chuva, ato a mochila a um banco e coloco-a de modo a que a sua côr laranja abafado seja visível mesmo de longe.
 
-"Dois ou três capangas com um par de pistolas poderia passar a pente toda a vila, casa por casa, antes da polícia chegar" disse o Tex 
+"Dois ou três capangas com um par de pistolas poderiam passar a pente toda a vila, casa por casa, antes da polícia chegar" disse o Tex mencionando o fato que a casa onde dormem não tem fechaduras. A minha também não. Ele vem da metrópole, e é advogado.
 
-"Due o tre *capanga* con un paio di pistole potrebbero passare al pettine tutto il villaggio, casa per casa, prima che arrivi la polizia" ha detto Ney menzionando il fatto che la casa dove dormono non ha serrature. La mia neppure. Viene dalla metropoli, lui, ed è avvocato.
+Nesse dia encontro-os na foz. Esplico à Domi a receita do tiramisù enquanto estamos de molho a chafurdar na água morna, mas vamos todos embora na manhã seguinte e eu quero dar um último olhar a este oceano.
 
-Quel giorno li incontro alla foce. Spiego a Domi la ricetta del tiramisù mentre stiamo a mollo guazzando nell'acqua tiepida, ma ripartiamo tutti la mattina dopo e io voglio dare un ultimo sguardo a quest'oceano.
+Deixo-os no riu, somente as cabeças deles a emergir do espelho que reflite o céu chumbo e as primeiras construções da vila. Devo passar por uma linha de terra larga talvez uns cem metros para chegar ao mar. Vejo-o. Pela primeira vez não há ninguém. Ninguém em nenhum lado. Nem na praia, nem na água. Não se distingue sequer uma só figura no coqueiral ou na foz, além da qual as plantas em filas regulares continuam a extender-se a perder de vista. Nenhum edifício.
 
-Li lascio nel fiume, appena le loro teste a emergere dallo specchio che riflette il cielo plumbeo e le prime costruzioni del villaggio. Devo passare una linea di terra larga forse cento metri per raggiungere il mare. Lo vedo. Per la prima volta non c'è nessuno. Nessuno da nessuna parte. Né sulla spiaggia, né in acqua. Non si distingue neppure una figura nel palmeto o alla foce al di là della quale le piante in file regolari si estendono a perdita d'occhio. Nessun edificio.
+Começo a correr para cima e para baixo pela costa, e a gritar a plenos pulmões: "Uuuh!" por toda a duração do fôlego, fazendo ressoar o chamado alto nas cavidades nasáis e contra as frentes de onda. Saltito. Dou um par de cambalhotas. O céu acima de mim está inchado de nuvens. As ondas chamam. O calor da água quando o meu pé direito toca nela tranquiliza-me. Continuo a uivar, caminhando com passos rápidos flagelando as cristas, moinhando os braços, até que uma onda me molha a cintura. A minha euforia abranda e o uivo aplaca-se. Olho para o mar que respira como um ser colossal. O som da ressaca e os empurrões da água contra o meu corpo me fazem sentir que está ciente da minha presência.
 
-Comincio a correre su e giù lungo la costa, e a gridare a pieni polmoni: "Uuuh!" per tutta la durata del fiato, facendo risuonare il richiamo alto nelle cavità nasali e contro i fronti d'onda. Saltello. Faccio la ruota un paio di volte. Il cielo sopra di me è rigonfio di nuvole. Le onde chiamano. Il calore dell'acqua quando il mio piede destro la tocca mi rassicura. Continuo a ululare, camminando a passi rapidi sferzando le creste, mulinando le braccia, finché un'onda non mi bagna la vita. La mia euforia rallenta e l'ululato si placa. Guardo il mare respirare come un essere colossale. Il suono della risacca e le spinte dell'acqua contro il mio corpo mi fanno sentire che è cosciente della mia presenza.
+"Mostra-me qualquer coisa!" - grito, e a onda responde mugindo.
 
-"Fammi vedere qualcosa!" - grido, e l'onda risponde mugghiando.
+"Mostra-me qualquer coisa!" - grito mais alto, batendo as palmas contra a superfície da água.
 
-"Fammi vedere qualcosa!" grido più forte, battendo le palme contro la superficie dell'acqua.
+"Estou aqui!" grito, caminhando contra a onda com tom de desafio. "Mostra-me qualquer coisa!"
 
-"Sono qui!" grido, camminando contro l'onda in tono di sfida. "Fammi vedere qualcosa!"
+"Estou aqui! Estou aqui!"
 
-"Sono qui! Sono qui!"
+Agito-me. Procuro quase correr ao encontro dela.
 
-Mi dimeno. Cerco quasi di correrle incontro.
+"Estou aqui! Mostra-me qualquer coisa!"
 
-"Sono qui! Fammi vedere qualcosa!"
+"Estou aqui!" respondo para a onda.
 
-"Sono qui!" rispondo all'onda.
+"Estou aqui!" grito mais uma vez antes de me deixar cair para frente.
 
-"Sono qui!" grido ancora prima di lasciarmi cadere in avanti.
+"Estou aqui!" grito ao levantar-me. E me atiro outra vez.
 
-"Sono qui!" grido rialzandomi. E mi rituffo.
+Mar, mar e ainda mar. O seu corpo e o meu comunicam como aqueles de dois amantes em luta. Mostra-me qualquer coisa.
 
-Mare, mare e poi mare. Il suo corpo e il mio comunicano come quelli di due amanti in lotta. Fammi vedere qualcosa.
+"Estou aqui!" - a voz na garganta
 
-"Sono qui!" - la voce in gola
+"Estou aqui!" - agora soa alheia
 
-"Sono qui" - ora suona estranea
+"Estou aqui!" - e a potência doce das ondas
 
-"Sono qui" - e la possanza dolce delle onde
+"Estou aqui!" - que me ladra contra
 
-"Sono qui" - che mi ringhia contro
+"Estou aqui!" - condensa-se nesta afirmação
 
-"Sono qui" - si condensa in quest'affermazione
+"Estou aqui".
 
-"Sono qui".
+Deixo-me cair uma última vez e procuro descanço na água
 
-Mi lascio cadere un'ultima volta e cerco riposo nell'acqua.
-
-Sono qui.
+Estou aqui.
 
 ---
 
