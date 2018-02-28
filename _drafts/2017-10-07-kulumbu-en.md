@@ -1,24 +1,24 @@
 ---
 layout:     post
 ref:		kulumbu
-lang: 		it
-title:      "Kulumbù"
-subtitle:   "Le libertà"
+lang: 		en
+title:      "Kulumboo"
+subtitle:   "Freedoms"
 date:       2017-10-07 12:00:00
 header-img: "img/kulumbu.jpg"
 ---
 
-A volte gruppi di schiavi in fuga si rifugiavano in zone remote fondando piccoli villaggi nascosti; alcuni di questi esistono ancora oggi. 
+Sometimes groups of runaway slaves took shelter in remote areas funding small hidden villages; some of those still exist today.
 
-Quello che chiamo Kulumbù è un ecovillaggio sulla costa, situato tra un'immensa piantagione di noci di cocco e la foce di un piccolo fiume a due ore di marcia dal paese più vicino. Vi arrivo in un'ora sulla jeep navetta pagando quattro volte il prezzo medio per la stessa distanza su un autobus di linea. Conosco due tipi di comunità: gli squat e quelle che sopravvivono spremendo i visitatori. Kulumbù sembra del secondo tipo.
+What I call Kulumboo is an eco-village on the coast, located between a huge coconut plantation and the mouth of a small river two hours walking from the nearest town. I get there in one hour on a shuttle jeep by paying four times the average price for the same distance on a public bus. I know two types of communities: squats and those which survive by squeezing the visitors. Kulumboo seems of the second type.
 
-Assieme a me sulla jeep ci sono tre donne che stanno seguendo un corso di crescita personale al villaggio e una coppia, Tex e Domitille. Lei l'ho incrociata prima di salire sulla navetta in un negozio di dolci. L'ho aiutata a prendere un liquore dall'ultimo scaffale, gesto a cui a risposto con un "grazie" biondo e un po' sdegnoso - molto francese, ho pensato. Invece facciamo amicizia mentre i bagagli vengono sistemati sul tetto dell'auto, e scopro che sono entrambi sudamericani. Mi siedo dietro con Tex.
+Together with me on the jeep there are three women who are attending a self-development course at the village and a couple, Tex and Domitille. I met her shortly before in a pastry shop. I helped her taking a liquor from the last shelf, to which she replied with a blonde and slightly contemptuous "thanks" - very French, I thought. Instead we become friends while the bags are loaded on the car hood, and I discover that they are both South Americans. I sit in the back with Tex.
 
-Sono alto, ma in confronto a lui mi sento gracile. Ha la pelle cotta da varie stagioni di surf e una sorta di cicatrice sotto l'occhio destro di cui non chiederò la storia. Tra gli scossoni della macchina, cercando di fare leva con le gambe per non essere troppo sballottati, parliamo di cose pratiche: lavoro, connessioni internet in zone remote, bioedilizia. È avvocato, mi dice, e stà anche lui lavorando a distanza. Condividiamo qualche dubbio sulla buonafede del sistema economico di Kulumbù.
+I am tall, but compared to him I feel delicate. His skin is baked by several surf seasons and he's got a sort of scar under the right eye, of which I will not ask for the story. In between the car's bumps, trying to leverage on our legs in order not to be shaken too much, we speak about practical things: work, internet connections in remote areas, bio-construction. He's a lawyer, he tells me, and she is also working remotely. We share some doubts on the good faith of Kulumboo's economical system.
 
-Quando arriviamo devono essere le sette ed è già notte. Mi ritrovo rapidamente solo. Le due ragazze alla reception non sembrano particolarmente interessate ad aiutarmi, ma ho una mappa disegnata sul diario, la luce del cellulare e le istruzioni per raggiungere la casa dove si trova la stanza che ho affittato, in fondo al villaggio. Le costruzioni sono tutte di uno o due piani, circondate da tratti ampi di vegetazione più o meno fitta. Dopo una decina di minuti raggiungo un gruppo di tre case. Scarto quella con la lavatrice ("abbiamo solo il lavatoio" ricordo che mi ha detto la mia ospite) e mi dirigo alla seconda. È quella giusta. 
+When we arrive it must be around seven and it's already dark. I rapidly find myself alone. The two girls at the reception are not particularly interested in helping me, but I have a map drawn on the diary, the light of the mobile phone and the directions to reach the house where is the room I rent, at the end of the village. All constructions are one or two stores high, surrounded by wide stretches of vegetation more or less thick. After about ten minutes I reach a group of three houses. I discard the one with the washing-machine ("we only have the washtub" I remember the owner saying) and I point to the second one. It's the right one.
 
-La giungla di notte fa un gran baccano.
+The jungle at night makes a hell of a racket.
 
 ---
 
@@ -34,11 +34,11 @@ La notte spesso la casa rimane vuota. Mi arrischio ad aprire le grandi porte a v
 
 È solo il penultimo giorno, un sabato, che ho tempo per una ricognizione completa. Dopo aver lavorato ancora qualche ora di mattina, mi aggiro per il villaggio con lo zaino in spalla. Mi hanno avvisato dei furti (l'ultimo è accaduto due notti prima) e per questo mi tengo stretto il mio Dell di cinque chili sul groppone; anche quando entro in acqua sotto un cielo che minaccia pioggia lego lo zaino a una panchina e lo posiziono in modo che il suo arancione spento sia visibile anche da lontano. 
 
-"Due o tre *capanga* con un paio di pistole potrebbero passare al pettine tutto il villaggio, casa per casa, prima che arrivi la polizia" ha detto Ney menzionando il fatto che la casa dove dormono non ha serrature. La mia neppure. Viene dalla metropoli, lui, ed è avvocato.
+"Due o tre *capanga* con un paio di pistole potrebbero passare al pettine tutto il villaggio, casa per casa, prima che arrivi la polizia" ha detto Tex menzionando il fatto che la casa dove dormono non ha serrature. La mia neppure. Viene dalla metropoli, lui, ed è avvocato.
 
 Quel giorno li incontro alla foce. Spiego a Domi la ricetta del tiramisù mentre stiamo a mollo guazzando nell'acqua tiepida, ma ripartiamo tutti la mattina dopo e io voglio dare un ultimo sguardo a quest'oceano.
 
-Li lascio nel fiume, appena le loro teste a emergere dallo specchio che riflette il cielo plumbeo e le prime costruzioni del villaggio. Devo passare una linea di terra larga forse cento metri per raggiungere il mare. Lo vedo. Per la prima volta non c'è nessuno. Nessuno da nessuna parte. Né sulla spiaggia, né in acqua. Non si distingue neppure una figura nel palmeto o alla foce al di là della quale le piante in file regolari si estendono a perdita d'occhio. Nessun edificio.
+Li lascio nel fiume, appena le loro teste a emergere dallo specchio che riflette il cielo plumbeo e le prime costruzioni del villaggio. Devo passare una linea di terra larga forse cento metri per raggiungere il mare. Lo vedo. Per la prima volta non c'è nessuno. Nessuno da nessuna parte. Né sulla spiaggia, né in acqua. Non si distingue neppure una figura nel palmeto o alla foce, al di là della quale le piante in file regolari continuano estendendosi a perdita d'occhio. Nessun edificio.
 
 Comincio a correre su e giù lungo la costa, e a gridare a pieni polmoni: "Uuuh!" per tutta la durata del fiato, facendo risuonare il richiamo alto nelle cavità nasali e contro i fronti d'onda. Saltello. Faccio la ruota un paio di volte. Il cielo sopra di me è rigonfio di nuvole. Le onde chiamano. Il calore dell'acqua quando il mio piede destro la tocca mi rassicura. Continuo a ululare, camminando a passi rapidi sferzando le creste, mulinando le braccia, finché un'onda non mi bagna la vita. La mia euforia rallenta e l'ululato si placa. Guardo il mare respirare come un essere colossale. Il suono della risacca e le spinte dell'acqua contro il mio corpo mi fanno sentire che è cosciente della mia presenza.
 
