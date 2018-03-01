@@ -10,73 +10,73 @@ header-img: "img/kulumbu.jpg"
 
 Sometimes groups of runaway slaves took shelter in remote areas funding small hidden villages; some of those still exist today.
 
-What I call Kulumboo is an eco-village on the coast, located between a huge coconut plantation and the mouth of a small river two hours walking from the nearest town. I get there in one hour on a shuttle jeep by paying four times the average price for the same distance on a public bus. I know two types of communities: squats and those which survive by squeezing the visitors. Kulumboo seems of the second type.
+What I call Kulumboo is an eco-village on the coast, located between a huge coconut plantation and the mouth of a small river two hours walking from the nearest town. I get there in one hour on a shuttle jeep by paying four times the average price for the same distance on a public bus. I know two types of communities: squats and those which survive by squeezing the visitors. Kulumboo seems to be of the second type.
 
-Together with me on the jeep there are three women who are attending a self-development course at the village and a couple, Tex and Domitille. I met her shortly before in a pastry shop. I helped her taking a liquor from the last shelf, to which she replied with a blonde and slightly contemptuous "thanks" - very French, I thought. Instead we become friends while the bags are loaded on the car hood, and I discover that they are both South Americans. I sit in the back with Tex.
+Together with me on the jeep there are three women who are attending a self-development course at the village and a couple, Tex and Domitille. I met her shortly before in a pastry shop. I helped her taking a liquor from the last shelf, to which she replied with a blonde and slightly contemptuous "thanks" - very French, I thought. Instead we become friends while the bags are loaded on the car's hood, and I discover that they are both South Americans. I sit in the back with Tex.
 
-I am tall, but compared to him I feel delicate. His skin is baked by several surf seasons and he's got a sort of scar under the right eye, of which I will not ask for the story. In between the car's bumps, trying to leverage on our legs in order not to be shaken too much, we speak about practical things: work, internet connections in remote areas, bio-construction. He's a lawyer, he tells me, and she is also working remotely. We share some doubts on the good faith of Kulumboo's economical system.
+I am tall, but compared to him I feel delicate. His skin is baked by several surf seasons and he's got a sort of a scar under the right eye, of which I will not ask the story. In between the car's bumps, trying to leverage on our legs in order not to be shaken too much, we speak about practical things: work, internet connections in remote areas, bio-construction. He's a lawyer, he tells me, and he is working remotely too. We share some doubts on the good faith of Kulumboo's economical system.
 
-When we arrive it must be around seven and it's already dark. I rapidly find myself alone. The two girls at the reception are not particularly interested in helping me, but I have a map drawn on the diary, the light of the mobile phone and the directions to reach the house where is the room I rent, at the end of the village. All constructions are one or two stores high, surrounded by wide stretches of vegetation more or less thick. After about ten minutes I reach a group of three houses. I discard the one with the washing-machine ("we only have the washtub" I remember the owner saying) and I point to the second one. It's the right one.
+When we arrive it must be around seven and it's already dark. I rapidly find myself alone. The two girls at the reception are not particularly interested in helping me, but I have a map drawn on the diary, the light of the mobile phone and the directions to reach the house where the room I rent is, at the end of the village. All constructions are one or two stores high, surrounded by wide stretches of more or less thick vegetation. After about ten minutes I reach a group of three houses. I discard the one with the washing-machine ("we only have the washtub" I remember the owner saying) and I point to the second one. It's the right one.
 
 The jungle at night makes a hell of a racket.
 
 ---
 
-I miei giorni a Kulumbù scorrono troppo veloci. Stare sette o otto ore al PC mi risulta molto difficile dopo aver visto la foce e il mare. Le zanzare non mi danno tregua e, dopo aver sperato nell'infinito potere dell'olio essenziale di lavanda, finisco per usare una camicia a maniche lunghe, pantaloni e calze per tutto il tempo che passo al lavoro. A fine pomeriggio mi cambio e mi butto in acqua.
+My days at Kulumboo run away too fast. Sitting seven or eight hours in front of the PC becomes very difficult after I've seen the river mouth and the sea. Mosquitoes give me no rest and, after having hoped in the infinite power of lavander essential oil, I end up using a long-sleeved shirt, trousers and socks for all the time I spend working. At the end of the afternoon I change and throw myself into the water.
 
-La vita del villaggio è strettamente legata al ritmo del sole: alle dieci sono già tutti a dormire; nonostante ciò riesco a farmi un bagno al giorno, qualche buona chiacchierata con i miei ospiti e un po' di meditazione guidata in una delle tende comuni. Forse per il mio sguardo diffidente, sento di non essere cercato da chi mi sta attorno. Neppure con Tex e Domi riesco ad incontrarmi tutti i giorni. La solitudine è grande ma piena e viva. Non è disperazione urbana. 
+The life at the village is strictly linked to the rithm of the sun: at 10 PM everyone is already sleeping; nevertheless, I am able to have a swim every day, some nice chats with my hosts and a guided meditation in one of the common tents. Maybe because of my distrustful look, I feel I'm not looked for by the people around me. I am not even able to hang around with Tex and Domi every day. The loneliness is big but full and alive. It's not urban despair.
 
-Le mie braccia magre sotto la doccia sembrano appartenere a un corpo non mio. L'acqua è calda e con la luna nuova le pareti si popolano di insetti, una mantide, un millepiedi e qualche falena. Non so i nomi di tutti gli animali che mi possono mordere.
+Under the shower, my skinny arms look like they belong to somebody else's body. The water is hot and with the new moon the walls get crowded with bugs, a praying mantis, a millipede and some moths. I do not know the names of all the animals that may bite me.
 
-La notte spesso la casa rimane vuota. Mi arrischio ad aprire le grandi porte a vetri che danno sul giardino scuro. Sdraiato nell'amaca, suono piano qualche scala greca e orientale.
+Often at night the house remains empty. I take the risk of opening the wide glass doors that lead to the dark garden. Laying on the hammock, I play gently some greek and eastern scales.
 
 ---
 
-È solo il penultimo giorno, un sabato, che ho tempo per una ricognizione completa. Dopo aver lavorato ancora qualche ora di mattina, mi aggiro per il villaggio con lo zaino in spalla. Mi hanno avvisato dei furti (l'ultimo è accaduto due notti prima) e per questo mi tengo stretto il mio Dell di cinque chili sul groppone; anche quando entro in acqua sotto un cielo che minaccia pioggia lego lo zaino a una panchina e lo posiziono in modo che il suo arancione spento sia visibile anche da lontano. 
+It is only on the second to last day, a Saturday, that I have time for a full recognition. After working for some more hours in the morning, I wander around the village carrying my backpack. They warned me about the thefts (the last one happened two days before) and for this reason I hold tight to the five-kilogram Dell hanging from my shoulders; even when I enter the water under a rain-threatening sky, I tie the backpack to a bench and I put it so that its wan orange color can still be seen from far away.
 
-"Due o tre *capanga* con un paio di pistole potrebbero passare al pettine tutto il villaggio, casa per casa, prima che arrivi la polizia" ha detto Tex menzionando il fatto che la casa dove dormono non ha serrature. La mia neppure. Viene dalla metropoli, lui, ed è avvocato.
+"Two or three *capangas* with a couple of guns can comb the entire village, house by house, before the police may arrive" said Tex, mentioning the fact that the house they sleep in has no locks. Mine neither. He comes from the metropolis. And he's a laywer.
 
-Quel giorno li incontro alla foce. Spiego a Domi la ricetta del tiramisù mentre stiamo a mollo guazzando nell'acqua tiepida, ma ripartiamo tutti la mattina dopo e io voglio dare un ultimo sguardo a quest'oceano.
+That day I meet them at the mouth. I give the *tiramisù*'s recipe to Domi while we wallow in the warm water, but we will all leave the next morning and I want to have a last glance of this ocean.
 
-Li lascio nel fiume, appena le loro teste a emergere dallo specchio che riflette il cielo plumbeo e le prime costruzioni del villaggio. Devo passare una linea di terra larga forse cento metri per raggiungere il mare. Lo vedo. Per la prima volta non c'è nessuno. Nessuno da nessuna parte. Né sulla spiaggia, né in acqua. Non si distingue neppure una figura nel palmeto o alla foce, al di là della quale le piante in file regolari continuano estendendosi a perdita d'occhio. Nessun edificio.
+I leave them in the river, just their heads arising from the mirror that reflects the lead grey sky and the first buildings of the village. I have to cross a streak of land about a hundred meters wide to reach the sea. I see it. For the first time there is nobody. Nobody nowhere. Not on the beach, not in the water. You can't distinguish a single figure in the plantation or at the river mouth, after which the plants go on extending in regular rows for as far as the eye can see.
 
-Comincio a correre su e giù lungo la costa, e a gridare a pieni polmoni: "Uuuh!" per tutta la durata del fiato, facendo risuonare il richiamo alto nelle cavità nasali e contro i fronti d'onda. Saltello. Faccio la ruota un paio di volte. Il cielo sopra di me è rigonfio di nuvole. Le onde chiamano. Il calore dell'acqua quando il mio piede destro la tocca mi rassicura. Continuo a ululare, camminando a passi rapidi sferzando le creste, mulinando le braccia, finché un'onda non mi bagna la vita. La mia euforia rallenta e l'ululato si placa. Guardo il mare respirare come un essere colossale. Il suono della risacca e le spinte dell'acqua contro il mio corpo mi fanno sentire che è cosciente della mia presenza.
+I start running up and down along the coast, and screaming at the top of my lungs: "Ooooh!" for all the duration of the breath, making the call ring high in the nasal cavity and against the wavefronts. I skip. I do a couple of cartwheels. The sky above me is swallen with clouds. The waves call. The warmth of the water when my right foot touches it reassures me. I keep on howling, walking in quick steps lashing out the wave tops, swirling my arms, until a wave wets my waist. My excitement slows down and the howl appeases. I look at the sea breathing like a gigantig being. The sound of the backwash and the water pushing against my body make me feel that it is aware of my presence.
 
-"Fammi vedere qualcosa!" - grido, e l'onda risponde mugghiando.
+"Show me something!" - I scream, and the wave replies rumbling.
 
-"Fammi vedere qualcosa!" grido più forte, battendo le palme contro la superficie dell'acqua.
+"Show me something!" I scream louder, hitting the palms on the water surface.
 
-"Sono qui!" grido, camminando contro l'onda in tono di sfida. "Fammi vedere qualcosa!"
+"I am here!" I scream, walking towards the wave with a threatening move. "Show me something!"
 
-"Sono qui! Sono qui!"
+"I am here! I am here!"
 
-Mi dimeno. Cerco quasi di correrle incontro.
+I squirm. I almost try to run towards it.
 
-"Sono qui! Fammi vedere qualcosa!"
+"I am here! Show me something!"
 
-"Sono qui!" rispondo all'onda.
+"I am here!" I answer to the wave.
 
-"Sono qui!" grido ancora prima di lasciarmi cadere in avanti.
+"I am here!" I scream again before letting myself fall forward.
 
-"Sono qui!" grido rialzandomi. E mi rituffo.
+"I am here!" I scream raising up. And I dive again.
 
-Mare, mare e poi mare. Il suo corpo e il mio comunicano come quelli di due amanti in lotta. Fammi vedere qualcosa.
+Sea, sea and more sea. Its body and mine communicate like two lovers in a fight. Show me something. 
 
-"Sono qui!" - la voce in gola
+"I am here!" - the voice in my throat
 
-"Sono qui" - ora suona estranea
+"I am here!" - now sounds alien
 
-"Sono qui" - e la possanza dolce delle onde
+"I am here!" - and the sweet power of the waves
 
-"Sono qui" - che mi ringhia contro
+"I am here!" - that growls against me
 
-"Sono qui" - si condensa in quest'affermazione
+"I am here!" - condenses in this statement
 
-"Sono qui".
+"I am here".
 
-Mi lascio cadere un'ultima volta e cerco riposo nell'acqua.
+I let myself fall one last time and I seek rest into the water.
 
-Sono qui.
+I am here.
 
 ---
 
