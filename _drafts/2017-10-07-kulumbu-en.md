@@ -80,7 +80,7 @@ I am here.
 
 ---
 
-Quella notte mi sveglio verso le quattro. Una zanzara è riuscita a intrufolarsi nella zanzariera rammendata che pende sopra il mio materasso. Mi dò alla caccia per qualche interminabile minuto: ogni volta che la luce del cellulare è accesa, la predatrice sparisce; quando riesco a vederla atterrare su una piega di tessuto il mio attacco è troppo lento e impacciato per colpirla. Dopo un po' rinuncio, piantando la faccia nel cuscino con appena l'occhio sinistro aperto e abbagliato dalla torcia del telefono che illumina la rete sopra di me. Comincio a rimuginare sul mio passato. Conto una, due, tre donne che ho amato e che sono totalmente sparite dalla mia vita. "Perché?", mi chiedo. "Perché?!"
+That night I woke up around four. A mosquito was able to sneak under the patched net that hangs over my mattress. I engage a hunt for some endless minutes: any time that the mobile light is on, the predator disappears; when I see it landing on a fold of fabric my attack is too slow and clumsy to hit it. After a while I give up, sticking my face into the pillow with just the left eye open and dazzled by the by the phone's flashlight that illuminates the net above me. I start dwelling on my past. I count one, two, three women that I loved and that have completelly disappeared from my life. "Why?", I ask myself. "Why?!"
 
 La domanda nella notte di Kulumbù sembra lecita e sincera. La lascio galleggiare sul cuscino per un poco. Poi l'abbraccio.
 
