@@ -1,0 +1,85 @@
+---
+layout:     post
+ref:		exu
+lang: 		it
+title:      "Il lato di Eshu"
+subtitle:   "La musica delle anime"
+date:       2017-10-31 12:00:00
+header-img: "img/exu.jpg"
+---
+
+Tra le tante cose di cui non ho scritto, quello che è accaduto nella stanza interna del *pai-de-santo*, ormai due mesi fa, è l'episodio che ho serbato più a lungo. Mi ritrovo ad annotarlo ora, sul volo di ritorno, sul tavolino ripiegabile alla luce della lampada da lettura.
+
+Y., sua madre ed io siamo entrati in una cucina accompagnati da uno degli aiutanti - forse un *filho-de-santo*. La stanza era poco illuminata e grande meno di un quarto del salone in cui avevamo assistito alle trasformazioni e alla festa. Il *pai-de-santo* sedeva bevendo su una panca di legno sulla sinistra, con gli occhi sorridenti. Ci fece sedere tutti e tre di fronte a lui, su una panca analoga. Y., io e la mamma di Y.
+
+Ci offre da bere. Prendo il bicchiere che mi viene porto a due mani. Conversa con Y. per prima e con sua madre poi. Io assisto in silenzio.
+
+- E tu?
+
+- Io?
+
+Mi prende le mani.
+
+- Voi due siete fidanzati? - dice indicando Y.
+
+- No - rispondiamo assieme - solo amici.
+
+Sorride, commentando com'è curioso che quando un ragazzo e una ragazza si accompagnano, tutti pensano subito che sono fidanzati.
+
+Mi chiede di me. Mi presento di nuovo. Gli racconto da dove vengo, che sto già lavorando e che non studio più. Gli spiego che sto viaggiando...
+
+- Sei venuto fin qui dall'Europa! - esclama, fissandomi con il suo sorriso - Là nessuno ama nessuno, stanno tutti soli, ognuno per conto suo. Qui le persone sanno amare. Per questo sei venuto qui: per cercare persone con il cuore aperto! La tua vita comincia ora! La tua vita comincia ora!
+
+---
+
+Siamo rimasti nel *terreiro* ancora per parecchio tempo dopo aver ringraziato il *pai-de-santo* ed essere tornati nella sala. La musica non si era mai fermata e la festa continuava.
+
+Invitata da una degli incarnati, una donna piena e gioviale, la mamma di Y. si era unita alle danze. Anche Y. l'aveva seguita.
+
+La mia stanchezza era passata, forse a causa della *cachaça*. Il *pai-de-santo* era uscito nuovamente dalla stanza e aveva richiamato gli incarnati uno a uno. Ciascuno accompagnato dal proprio canto, gli spiriti avevano abbandonato i corpi al tocco del *pai-de-santo*, che aiutava poi i ragazzi sostenendo loro la testa o le spalle.
+
+Siamo finiti a camminare in cerchio attorno alla colonna centrale che nella memoria assume la forma di un albero bianco. Il *pai-de-santo* ha percorso il cerchio soffiando sulla testa di ciascuno un pugno di polvere bianca. Gli incarnati hanno bevuto dell'acqua servita da un'anfora di coccio al centro della stanza.
+
+Infine ci siamo abbracciati uno a uno. La canzone diceva:
+
+*Un abbraccio dato di buon cuore è meglio di una benedizione*
+
+La ragazza la cui bellezza mi aveva folgorato di più mi abbraccia due volte. Cerco l'enorme ragazzo che ci ha offerto la *cachaça* nella mezza noce di cocco. Mi sembra di abbracciare un fratello maggiore.
+
+La sinistra è il lato di Eshu.
+
+---
+
+Non ho visto la buca. 
+
+La bici correva veloce nonostante stessi frenando. Lo scatto fisso non ti permette mai di fermare le gambe o di rimanere in piedi sui pedali stringendo la sella tra le cosce per avere più controllo, como sono solito fare in discesa con la pieghevole nera. La discesa non era di lungi tra le più ripide della città - costruita su colline che sembrano sorte ieri - ma l'ampio viale e l'assenza di macchine e semafori permettevano di approfittare dello slancio.
+
+La mano sinistra, aperta per tenere la leva del freno, era stata sbalzata dal contraccolpo. Il manubrio aveva traballato e, in reazione, avevo stretto il freno posteriore.
+
+Posso solo usare la forma e la posizione delle ferite per ricostruire quello che successe dopo. Ricordo appena di vedere la ruota posteriore avvicinarsi pericolosamente alla fiancata di un'auto parcheggiata, e di sperare di non ammaccarla.
+
+Cominciamo dai superstiti: non ho nulla nella parte superiore del corpo. Braccia, mani e faccia sono illesi, a dimostrare che non sono caduto sull'asfalto. I danni si contano immediatamente dalla vita in giù: il testicolo sinistro è stato schiacciato tra la coscia e il sellino, probabilmente nell'improbabile tentativo di mantenere la bici con la sola forza delle cosce mentre i pedali giravano all'impazzata, al punto che una delle prime cose che racconto al ragazzo che mi soccorre, soffiando come una partoriente, è: "Mi sono schiacciato il coglione! Puttana che male!"; l'interno della coscia sinistra brucia di un dolore pungente al solo contatto con i vestiti e, passato il dolore alla palla, è quello che mi fa preoccupare di più perché non lo posso vedere (quando, un'ora dopo, riuscirò a fare una doccia si rivelerà appena una bruciatura); cosce e glutei sono tutti ammaccati per i colpi dati dalla sella, ma non ci sono altri tagli. Il ginocchio sinistro ha una serie di taglietti quasi decorativi, probabilmente dove ha sbattuto contro il manubrio, avessi avuto i pantaloni lunghi non ci sarebbero nemmeno; sul polpaccio destro c'è il taglio più grosso, uno sbrego slabbrato largo tutta la gamba, tagliato dal pedale di metallo che ha lasciato anche altri segni sia sul polpaccio che sullo stinco, direttamente sulla linea dell'osso, come se avesse cercato di maciullarlo. Il piede sinistro è a posto. Il destro - in compenso - ha tutto il lato interno dell'alluce esposto fino alla carne, con una ferita sporca, bianca, rossa e nera dovuta evidentemente al contatto con l'asfalto - il piede ha fatto da freno - e altre ferite più piccole, sempre all'interno; il sandalo destro ha la suola di sughero macchiata di sangue sotto l'alluce e l'ardiglione della fibbia si è piegato di 45 gradi, ma ha resistito - fabbricazione tedesca.
+
+Mi butto sul marciapiede immediatamente per togliermi dalla strada e così sdraiato a pancia in su ordino gridando al passante più vicino, che mi fissa attonito: "Zio, leva la bici dalla strada!" Sceso il dolore all'inguine e rassicurati il cameriere e l'artista di strada che mi ha portato l'acqua, chiedo se conoscono una fontana lì vicino dove possa lavare via il sangue. "Vai laggiù al benzinaio!" mi dicono.
+
+Zoppico per un isolato e lo raggiungo. Dei quattro benzinai indaffarati attorno alle macchine nel piazzale nessuno sembra darmi retta. Chiedo a uno del bagno, un po' temendo di conciarlo come una sala operatoria. Mi dice di usare la pompa dell'acqua. "Pure meglio!" dico io. Il rubinetto è mezzo rotto e il getto è irregolare. Non c'è una canna per spruzzarmi addosso. Lascio i sandali all'asciutto su un marciapiede accando alla bici e mi chiedo se il virus dell'AIDS sopravviva al sole nelle macchie d'olio. 
+
+Chiedo del disinfettante. Mi danno del sapone liquido industriale e della polvere di caffè per *estampar* la ferita. Brucia da fare schifo. Ringrazio.
+
+Faccio una telefonate, mi rimetto le scarpe, monto in sella e riparto.
+
+---
+
+Zoppico ancora, il giorno dopo, tornando dalla passeggiata domenicale, e porto ancora la bici a mano: la ruota posteriore mi ha lasciato a piedi forandosi rumorosamente quattro chilometri dopo un cavalcavia infernale. Ho comunque fatto il mio giro in autobus e ora sto cercando di orientarmi nel quartiere attorno al capolinea. Riconosco uno dei bassifondi al vedere una ragazzina che vende sigarette seduta su uno sgabello accanto a un semaforo. Mi muovo rapidamente, cerco di non usare il cellulare e taglio corto quando un tizio mi chiede quante marce ha la bici. Scatto fisso.
+
+Così disorientato arrivo a un incrocio centrale. Accanto a me si apre, su un isolato lastricato di cemento, quello che sembra essere il set di un film. C'è del soul sparato forte da due file di casse sullo sfondo. Davanti al dj, in ordine sparso, vedo bambini, uomini, donne, travestiti. Un gruppo al centro di un palco di cemento prova una coreografia. Tra loro una mulatta riccia con un profondo spacco nella lunga gonna bianca attrae la mia attenzione. Ho il cellulare e il portafogli in mano. Alcuni dei suoi compagni sono vestiti come comparse dei *Blues Brothers*. Pantaloni a zampa, scarpe con la fibbia, cappelli... Ne scorgo molti altri similmente acconciati nel resto della piazza. Quasi tutti ballano - molti sfoggiando passi che devono essere stati studiati per anni. La maggior parte di quelli perfettamente agghindati deve avere una cinquantina o sessantina d'anni. Scorgo un bimbo che non deve ancora andare alla materna che studia il moonwalker davanti a un transessuale tutto sorrisi che scuote la minigonna piegando le ginocchia fin quasi a toccare terra. Molti i curiosi, alcune facce da galera, mancano dei denti. Tengo stretta la bici. Il sole sta battendo sulle facciate di dei due palazzoni fascistoidi grigi che circondano la piazza. Il cielo alla fine delle trenta file di finestre è lontanissimo. Accanto a me un vecchio che pare possedere solo un paio di infradito, una maglietta e dei calzoncini non si ferma un momento. La mulatta è proprio bella. 
+
+Zoppico per tutto il perimetro della piazza. Attacca James Brown. 
+
+Non c'è rimedio. 
+
+Mi guardo ancora un po' attorno. Lego la bici a un vecchio telefono pubblico scassato. 
+
+Striscio zoppicando fino al primo spazio libero.
+
+E comincio anche io a ballare.
