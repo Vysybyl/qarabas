@@ -14,7 +14,7 @@ You will die. By stroke, with one third of the odds; by cancer with another thir
 
 Until that moment, you'll be sleeping for a big part of your life, dreaming dreams that you do not know nor understand.
 Most of the time that remains you'll be working. You will spend the biggest part of your life awake dealing with matters that interest you marginally or not at all, receiving in exchange only the bare indispensable to keep going.
-If you do not work, you will lack the essential; even if you have it, you will lack the redundant; if you the redundant too, your wealth will depend on others' sufferings: consciously or unconsciously guiltiness will lacerate you.
+If you do not work, you will lack the essential; even if you have it, you will lack the redundant; if you have the redundant too, your wealth will depend on others' sufferings: consciously or unconsciously guiltiness will lacerate you.
 
 Your efforts will feed the same mechanism that traps you. What you need, you will always have to buy, never being able to create it. You will work to waste: what may feed you, you shall throw away; what may be useful shall broke in your hands; your clothes will fall apart and your house will go to rack and ruin. What you shall produce, what you shall buy and consume will flood your house, your body and your mind in poison.
 
