@@ -32,11 +32,11 @@ Muitas vezes à noite a casa fica vazia. Atrevo-me a abrir as grandes portadas d
 
 ---
 
-É só no penúltimo dia, um sábado, que tenho tempo para uma perlustração completa. Depois de ter trabalhado umas horas de manhã, vagueio pela aldeia com a mochila às costas. Avisaram-me dos roubos (o último aconteceu duas noites antes) e por isso agarro-me bem ao meu Dell de cinco quilo no dorso; mesmo quando entro na água debaixo de um céu que ameaça chuva, ato a mochila a um banco e coloco-a de modo a que a sua côr laranja abafado seja visível mesmo de longe.
+É só no penúltimo dia, um sábado, que tenho tempo para uma perlustração completa. Depois de ter trabalhado umas horas de manhã, vagueio pela aldeia com a mochila às costas. Avisaram-me dos roubos (o último aconteceu duas noites antes) e por isso agarro-me bem ao meu Dell de cinco quilos na garupa; mesmo quando entro na água debaixo de um céu que ameaça chuva, ato a mochila a um banco e coloco-a de modo a que a sua côr laranja abafado seja visível mesmo de longe.
 
 "Dois ou três capangas com um par de pistolas poderiam passar a pente toda a vila, casa por casa, antes da polícia chegar" disse o Tex mencionando o fato que a casa onde dormem não tem fechaduras. A minha também não. Ele vem da metrópole, e é advogado.
 
-Nesse dia encontro-os na foz. Esplico à Domi a receita do tiramisù enquanto estamos de molho a chafurdar na água morna, mas vamos todos embora na manhã seguinte e eu quero dar um último olhar a este oceano.
+Nesse dia encontro-os na foz. Explico à Domi a receita do tiramisù enquanto estamos de molho a chafurdar na água morna, mas vamos todos embora na manhã seguinte e eu quero dar um último olhar a este oceano.
 
 Deixo-os no rio, somente as cabeças deles a emergir do espelho que reflite o céu chumbo e as primeiras construções da vila. Devo passar por uma linha de terra larga talvez uns cem metros para chegar ao mar. Vejo-o. Pela primeira vez não há ninguém. Ninguém em nenhum lado. Nem na praia, nem na água. Não se distingue sequer uma só figura no coqueiral ou na foz, além da qual as plantas em filas regulares continuam a extender-se a perder de vista. Nenhum edifício.
 
