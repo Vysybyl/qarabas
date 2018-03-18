@@ -36,12 +36,12 @@ O teu sentido de justiça estará submetido ao teu jugo. Sofrerás injustiças: 
 Vais-te enganar. Tomarás as decisões erradas; investirás nos negócios errados; escolherás o caminho mais comprido e perder-te-ás.
 Vais imaginar haver estrutura e estabilidade aonde há somente tortura e caos. Construirás por cima destas ilusões planos e projectos que se desmoronarão estrondosamente ou que não te trarão alguma satisfação. Serás alheio a ti próprio e aos outros. Julgarás com arrogância todos os que não entendes.
 
-Vais trapacear e ser trapaceado. Trairás a ti próprio vezes sem conta por causa da tua ignorância. Aprenderás a se submisso e produtivo, ou esperto e vil, ou amargo e rancoroso, ou preguiçoso, ou outra coisa ainda.
+Vais trapacear e ser trapaceado. Trairás a ti próprio vezes sem conta por causa da tua ignorância. Aprenderás a ser submisso e produtivo, ou esperto e vil, ou amargo e rancoroso, ou preguiçoso, ou outra coisa ainda.
 Vais te pensar outro daquilo que és. Descuidarás do teu corpo e ele parará de te responder: adoecerá e empodrecerá. Ainda que assim quebrado, vais continuar no jugo alimentando-te com ilusões. Irás esperar o que nunca será e isto dilacerar-te-á.
 
 Vais ser infame: não te olharás nunca no espelho e quando o fizeres para tirar a máscara vais ter horror ao deslumbrar o vazio aonde esperavas encontrar o teu rosto. 
 
-Desvanecerás e serás lembrado aproximadamente, por detalhes infinitesimáis e insignificantes. 
+Desvanecerás e serás lembrado aproximadamente, por detalhes infinitesimáis e insignificantes.
 
 Depois serás esquecido para sempre.
 

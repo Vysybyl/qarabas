@@ -29,7 +29,7 @@ Avrai vergogna delle paure di cui non potrai parlare. Le paure condivise le chia
 
 Desidererai e non otterrai. Non basterà il denaro o il tempo, oppure le forze, o l'occasione non si presenterà. Se questa apparirà non la coglierai o fallirai provando a coglierla. Se anche realizzerai quello che desideri, ciò che otterrai sarà diverso da quello che speravi e la catena dei desideri ti dilanierà.
 
-Il tuo senso di giustizia sarà asservito al tuo giogo. Subirai ingiustizie: quando sarai nel giusto, verrai accusato e punito ingiustamente; nel torto verrai scoperto e la pena sarà più grande della colpa, oppure riuscirai a mantenere il segreto e il rimorso ti dilanierà.
+Il tuo senso di giustizia sarà asservito al tuo giogo. Subirai ingiustizie: quando sarai nel giusto, verrai accusato e punito ingiustamente; nel torto, verrai scoperto e la pena sarà più grande della colpa, oppure riuscirai a mantenere il segreto e il rimorso ti dilanierà.
 
 L'amore per i tuoi figli li nutrirà, facendoli crescere forti e sani solo per affidarli al tuo stesso destino.
 
@@ -39,7 +39,7 @@ Ti penserai altro da ciò che sei. Ignorerai il tuo corpo e questo non ti rispon
 
 Sarai meschino: non ti guarderai mai allo specchio e quando lo farai per toglierti la maschera inorridirai allo scorgere il vuoto là dove ti aspettavi di trovare il tuo volto. 
 
-Svanirai e sarai ricordato approssimatamente, per dettagli infinitesimali e insignificanti. 
+Svanirai e sarai ricordato approssimativamente, per dettagli infinitesimali e insignificanti. 
 
 Poi sarai dimenticato per sempre.
 

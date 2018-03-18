@@ -16,7 +16,7 @@ Until that moment, you'll be sleeping for a big part of your life, dreaming drea
 Most of the time that remains you'll be working. You will spend the biggest part of your life awake dealing with matters that interest you marginally or not at all, receiving in exchange only the bare indispensable to keep going.
 If you do not work, you will lack the essential; even if you have it, you will lack the redundant; if you have the redundant too, your wealth will depend on others' sufferings: consciously or unconsciously guiltiness will lacerate you.
 
-Your efforts will feed the same mechanism that traps you. What you need, you will always have to buy, never being able to create it. You will work to waste: what may feed you, you shall throw away; what may be useful shall broke in your hands; your clothes will fall apart and your house will go to rack and ruin. What you shall produce, what you shall buy and consume will flood your house, your body and your mind in poison.
+Your efforts will feed the same mechanism that traps you. What you need, you will always have to buy, never being able to create it. You will work to waste: what may feed you, you shall throw away; what may be useful shall broke in your hands; your clothes will fall apart and your house will go to rack and ruin. What you shall produce, what you shall buy and consume will flood your house, your body and your mind with poison.
 
 You shall suffer violence. They will scream against you. You shall be robbed, beaten, maybe killed.
 
@@ -27,7 +27,7 @@ You emotions will plot against you.
 You will be afraid.
 You will be ashamed of those fears that you can not name. You will call the other ones as "common sense". You will not face either of them and they will lacerate you.
 
-You will desire and not get. Money or time will not be enough, or your strengths, or the occasion will not appear. If it appears, you will not catch or you will fail trying to catch it. Even if you achive what you desire, what you get will be different from what you expected and the chain of desire will lacerate you.
+You will desire and not get. Money or time will not be enough, or your strengths, or the occasion will not appear. If it appears, you will not catch or you will fail trying to catch it. Even if you achieve what you desire, what you get will be different from what you expected and the chain of desire will lacerate you.
 
 Your sense of justice will be enslaved to your yoke. You will suffer injustice: when you are right, you will be accused and punished unjustly; when you are wrong you will be exposed and the punishment will exceed the crime, or you will keep the secret and the regret will lacerate you.
 
@@ -36,7 +36,7 @@ Your love for your children will feed them, making them grow strong and healthy 
 You will be mistaken. You will take the wrong decisions; you will invest in the wrong endeavors; you will choose the longest road and you will get lost.
 You will see structure and stability where there is nothing but torture and chaos. You will build on top of these illusions plans and projects that will collapse loudly. You will be a stranger to yourself and to others. You will judge with arrogance everyone that you do not understand. You will cheat and be cheated. You will betray yourselfe repeatedly due to your ignorance. You will learn to be obedient and productivo, or sly and dishonest, or lazy, or something else.
 
-You will think yourself as what you are not. You will ignore your body and that will not respond you: it will fall ill and rotten. Even so broken, you will keep under the yoke fed by illusions. You will hope what will never be and that will lacerate you.
+You will think about yourself as what you are not. You will ignore your body and that will not respond you: it will fall ill and rotten. Even so broken, you will keep under the yoke fed by illusions. You will hope what will never be and that will lacerate you.
 
 You will be mean: you will not look at yourself into the mirror and when you will do it to take off your mask you will be horrified by glimpsing the void where you expected to see you face.
 
