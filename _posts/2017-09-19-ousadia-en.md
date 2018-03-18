@@ -18,7 +18,7 @@ The man in front of me is slim and has got an egg-shaped face. He's leaning on t
 
 \- But it's a mirror for the reader too, isn't it?
 
-\- Yes, of course. Writing has the power of showing us a glimpse of ourselves, an echo... And even who writes ends up revealing himself.
+\- Yes, of course. Writing has the power of showing us a glimpse of ourselves, an echo... And even the one who writes ends up revealing himself.
 
 \- That is the risk? To be discovered?
 
@@ -44,9 +44,9 @@ He sells one book. Once they stop talking he wants to offer me a copy. I believe
 
 We both sport long nails on the right hand. I ask him if he'd like to be a professional writer.
 
-\- I have this fear of publishing too - I confess. - For a very long time I thought that it was fundamental for an artist to live off his art. My family is not rich and being economically independent has always been part of my education. A kind of pride. I tried several paths but I always ended up working in call centers. So, eventually, I decided to invest in a technical profession and I went back to university.
+\- I have this fear of publishing too - I confess. - For a very long time I thought that it was fundamental for an artist to live off their art. My family is not rich and being economically independent has always been part of my education. A kind of pride. I tried several paths but I always ended up working in call centers. So, eventually, I decided to invest in a technical profession and I went back to university.
 
-\- But the click happened when, a few years ago, I found on youtube a few interviews to some of the best Italian poets from the last century, those ones that in Italy you study at school. And I discovered that most of them were professors or something similar. They all had humble jobs. That's why I ask you.
+\- But the click happened when, a few years ago, I found on YouTube a few interviews to some of the best Italian poets from the last century, those ones that in Italy you study at school. And I discovered that most of them were professors or something similar. They all had humble jobs. That's why I ask you.
 
 \- Well, I am myself a high-school teacher. I think that my job feeds me and gives me writing material. Maybe in a few decades I will have stocked enough experience - he smiles - and I will like the idea to commit myself to writing alone. But not for now. I think that keeping contact with...
 
@@ -58,7 +58,7 @@ We both sport long nails on the right hand. I ask him if he'd like to be a profe
 
 \- There always exists that risk, and maybe some fear...
 
-\- That someone would come after you with a stick...
+\- That someone could come after you with a stick...
 
 \- ... but I do not control the effects that my writings have on people. Clearly I do not write to offend anyone, but I can't control it any more than I can make the readers find any value in what I do.
 

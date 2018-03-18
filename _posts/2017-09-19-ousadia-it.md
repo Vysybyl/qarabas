@@ -14,7 +14,7 @@ L'uomo che mi trovo davanti è smilzo e ha il viso ovale. È allungato sulla sed
 
 \- In che senso? Qual è il rischio?
 
-\- Il rischio è quello che la parola scritta porta sempre con se. È uno specchio per chi scrive. Si finisce per scoprire un lato di noi stessi a cui non avremmo accesso d'altra forma.
+\- Il rischio è quello che la parola scritta porta sempre con sé. È uno specchio per chi scrive. Si finisce per scoprire un lato di noi stessi a cui non avremmo accesso d'altra forma.
 
 \- Ma è uno specchio pure per chi legge, no?
 
@@ -30,13 +30,13 @@ L'uomo che mi trovo davanti è smilzo e ha il viso ovale. È allungato sulla sed
 
 Leggo un racconto di una pagina. C'è un silenzio denso. 
 
-\- È una sensazione un po' strana questa di... Non succede tutti i giorni di leggere il libro stando accanto alla scrittore.
+\- È una sensazione un po' strana questa di... Non succede tutti i giorni di leggere il libro stando accanto allo scrittore.
 
 Ridiamo.
 
 \- È un po' strano. Ma anche interessante.
 
-Arriva una ragazza che già conosce l'uomo e vuole presentargli un'amica. Finisco di leggere. 
+Arriva una ragazza che già lo conosce e vuole presentargli un'amica. Finisco di leggere. 
 
 Vende un libro. Quando finiscono di parlare vuole regarlarmi una copia. Credo sia più giovane di me.
 
@@ -46,7 +46,7 @@ Abbiamo entrambi le unghie lunghe alla mano destra. Gli chiedo se gli piacerebbe
 
 \- Anche io ho questa paura di pubblicare - confesso. - Per moltissimo tempo ho pensato che fosse fondamentale per un artista vivere della propria arte. La mia famiglia non è ricca ed essere economicamente indipendente ha sempre fatto parte della mia educazione. Una specie di orgoglio. Ho provato varie strade ma finivo sempre a lavorare in call center. Così alla fine ho deciso di investire in una professione tecnica e di tornare all'università.
 
-\- Ma il click per me è avvenuto quando, qualche anno fa, ho trovato su youtube delle interviste ad alcuni dei massimi poeti italiani del secolo scorso, quelli in Italia che si studiano a scuola. E ho scoperto che la maggior parte di questi erano professori o simili. Avevano tutti mestieri umili. È per questo che te lo chiedo.
+\- Ma il click per me è avvenuto quando, qualche anno fa, ho trovato su YouTube delle interviste ad alcuni dei massimi poeti italiani del secolo scorso, quelli che in Italia si studiano a scuola. E ho scoperto che la maggior parte di questi erano professori o simili. Avevano tutti mestieri umili. È per questo che te lo chiedo.
 
 \- Beh, io sono professore in un liceo. Credo che il mio mestiere mi nutra e mi dia materiale per scrivere. Forse tra qualche decennio avrò accumulato abbastanza esperienza - sorride - e mi piacerà l'idea di dedicarmi solo alla scrittura. Ma per ora no. Credo che mantenere un contatto con...
 

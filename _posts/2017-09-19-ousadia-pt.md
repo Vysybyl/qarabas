@@ -36,7 +36,7 @@ Rimos.
 
 \- É um pouco estranho. Mas também interessante.
 
-Chega uma moça que já conhece o homem e quer apresentar-lhe uma amiga. Acabo de ler.
+Chega uma moça que já o conhece e quer apresentar-lhe uma amiga. Acabo de ler.
 
 Ele vende um livro. Quando acabam de falar quer oferecer-me uma cópia. Acho-o mais novo do que eu.
 
