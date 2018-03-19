@@ -12,7 +12,7 @@ A volte gruppi di schiavi in fuga si rifugiavano in zone remote fondando piccoli
 
 Quello che chiamo Kulumbù è un ecovillaggio sulla costa, situato tra un'immensa piantagione di noci di cocco e la foce di un piccolo fiume a due ore di marcia dal paese più vicino. Vi arrivo in un'ora sulla jeep navetta pagando quattro volte il prezzo medio per la stessa distanza su un autobus di linea. Conosco due tipi di comunità: gli squat e quelle che sopravvivono spremendo i visitatori. Kulumbù sembra del secondo tipo.
 
-Assieme a me sulla jeep ci sono tre donne che stanno seguendo un corso di crescita personale al villaggio e una coppia, Tex e Domitille. Lei l'ho incrociata poco prima in un negozio di dolci. L'ho aiutata a prendere un liquore dall'ultimo scaffale, gesto a cui a risposto con un "grazie" biondo e un po' sdegnoso - molto francese, ho pensato. Invece facciamo amicizia mentre i bagagli vengono sistemati sul tetto dell'auto, e scopro che sono entrambi sudamericani. Mi siedo dietro con Tex.
+Assieme a me sulla jeep ci sono tre donne che stanno seguendo un corso di crescita personale al villaggio e una coppia, Tex e Domitille. Lei l'ho incrociata poco prima in un negozio di dolci. L'ho aiutata a prendere un liquore dall'ultimo scaffale, gesto a cui a risposto con un "grazie" biondo e un po' sdegnoso - molto francese, ho pensato. Invece facciamo amicizia mentre i bagagli vengono sistemati sul tetto dell'auto, e scopro che sono entrambi latinoamericani. Mi siedo dietro con Tex.
 
 Sono alto, ma in confronto a lui mi sento gracile. Ha la pelle cotta da varie stagioni di surf e una sorta di cicatrice sotto l'occhio destro di cui non chiederò la storia. Tra gli scossoni della macchina, cercando di fare leva con le gambe per non essere troppo sballottati, parliamo di cose pratiche: lavoro, connessioni internet in zone remote, bioedilizia. È avvocato, mi dice, e sta anche lui lavorando a distanza. Condividiamo qualche dubbio sulla buonafede del sistema economico di Kulumbù.
 
@@ -28,7 +28,7 @@ La vita del villaggio è strettamente legata al ritmo del sole: alle dieci sono 
 
 Le mie braccia magre sotto la doccia sembrano appartenere a un corpo non mio. L'acqua è calda e con la luna nuova le pareti si popolano di insetti, una mantide, un millepiedi e qualche falena. Non so i nomi di tutti gli animali che mi possono mordere.
 
-La notte spesso la casa rimane vuota. Mi arrischio ad aprire le grandi porte a vetri che danno sul giardino scuro. Sdraiato nell'amaca, suono piano qualche scala greca e orientale.
+La notte spesso la casa rimane vuota. Mi arrischio ad aprire le grandi porte a vetri che danno sul giardino scuro. Sdraiato sull'amaca, suono piano qualche scala greca e orientale.
 
 ---
 
@@ -64,13 +64,13 @@ Mare, mare e poi mare. Il suo corpo e il mio comunicano come quelli di due amant
 
 "Sono qui!" - la voce in gola
 
-"Sono qui" - ora suona estranea
+"Sono qui!" - ora suona estranea
 
-"Sono qui" - e la possanza dolce delle onde
+"Sono qui!" - e la possanza dolce delle onde
 
-"Sono qui" - che mi ringhia contro
+"Sono qui!" - che mi ringhia contro
 
-"Sono qui" - si condensa in quest'affermazione
+"Sono qui!" - si condensa in quest'affermazione
 
 "Sono qui".
 
@@ -90,7 +90,7 @@ Lascio uscire le lacrime. Sento qualcosa aggiustarsi dentro di me. Prendo il dia
 
 Il sonno mi è passato totalmente. Fuori già schiarisce. La zanzara ha svolto il suo compito e non si è più fatta vedere. 
 
-A che ora nasce il sole oggi? Google mi da dieci minuti di tempo. Schizzo fuori dal letto e mi vesto al volo. Metto gli scarponi da montagna allacciando appena l'ultimo paio di asole. Piscio seduto nel bagno secco, chiudo il piccolo lucchetto che funge da serratura simbolica per una delle immense porte a vetri e mi avvio correndo verso la spiaggia. 
+A che ora nasce il sole oggi? Google mi dà dieci minuti di tempo. Schizzo fuori dal letto e mi vesto al volo. Metto gli scarponi da montagna allacciando appena l'ultimo paio di asole. Piscio seduto nel bagno secco, chiudo il piccolo lucchetto che funge da serratura simbolica di una delle immense porte a vetri e mi avvio correndo verso la spiaggia. 
 
 Faccio un gran baccano sul sentiero di ghiaia e sabbia. So che buona parte del villaggio è già in piedi e spero di non essere scambiato per uno scassinatore in fuga. Passo le capanne di bambù, la tenda della danza, la casa dove Domi e Tex vengono divorati dalle zanzare e continuo a correre. C'è sempre un momento dopo il primo scatto iniziale dato con leggerezza in cui i piedi si appesantiscono e il cuore balza in gola e anche questa volta mi costringe a rallentare e ad aggiustare il passo. Supero i laboratori tessili, la scuola con il parco-giochi, le ultime case.
 
