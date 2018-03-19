@@ -34,6 +34,6 @@ No dia seguinte envio uma mensagem ao meu pai. Faço isto quase como um gesto ri
 
 Essa noite em que a Y. está atarefada com compromissos familiares encontro-me inquieto a procurar algum tipo de entretenimento depois da tarde passada à frente do ecrã. Cambaleio até um centro cultural que fica só dois quarteirões mais à frente. O céu cinzento torna-se preto também.
 
-Trata-se de uma peça inspirada numa história pessoal. Um monólogo. Ela, a filha, traz-nós uns fragmentos da sua relação com o pai, que passou os últimos anos da sua vida mudo depois de uma operação às cordas vocais. Põem-nos sentado em círculo na *hall*. Ela entra encharcada de água gélida, descalça, tremendo, com um vestido simples de tecido sintético - sem mangas e até ao joelho. Senta-se ao meu lado e parece-me sentí-la arrepiar debaixo dos caracóis. Traz ao colo uma caixa de sapatos que - dir-nos-á depois - contém todas as últimas mensagens do pai.
+Trata-se de uma peça inspirada numa história pessoal. Um monólogo. Ela, a filha, traz-nós uns fragmentos da sua relação com o pai, que passou os últimos anos da sua vida mudo depois de uma operação às cordas vocais. Põem-nos sentado em círculo na *hall*. Ela entra encharcada de água gélida, descalça, tremendo, com um vestido simples de tecido sintético - sem mangas e cumprido até ao joelho. Senta-se ao meu lado e parece-me sentí-la arrepiar debaixo dos caracóis. Traz ao colo uma caixa de sapatos que - dir-nos-á depois - contém todas as últimas mensagens do pai.
 
-A atriz perscruta-nos com as costas direitas. Depois fala.
+A atriz perscruta-nos de costas direitas. Depois fala.
