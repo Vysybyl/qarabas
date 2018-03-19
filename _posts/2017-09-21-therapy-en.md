@@ -18,7 +18,7 @@ The chat on the phone is still quiet. It's night already. I walk away. In the pa
 
 There is enough silence here. I unlock the phone: nothing. I breathe and press the mic icon. I keep it pressed.
 
-I record silence for the most but in the end I feel better. I call the Uber.
+I record silence for the most but in the end I feel better. I call an Uber.
 
 ***
 
@@ -40,7 +40,7 @@ I try to change the accent: "Wanna here a story?"
 
 "Speak out".
 
-I explain in broad terms about the encounter two years before and about everything that came afterwards.
+I explain in broad terms the encounter two years before and everything that came afterwards.
 
 "... and now she doesn't even want to see me".
 
@@ -50,7 +50,7 @@ The driver is reluctant, but I insist.
 
 "And what should I do?"
 
-"Have fun! It is very true that, when you like someone, you like someone. But you are in South America, enjoy it! Go out, have a drink, have some fun..."
+"Have fun! It is very true that, when you like someone, you like someone. But you are in Latin America, enjoy it! Go out, have a drink, have some fun..."
 
 "You think I should take care of myself?"
 

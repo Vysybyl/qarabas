@@ -8,7 +8,7 @@ date:       2017-09-21 12:00:00
 header-img: "img/therapy.jpg"
 ---
 
-Faz um frio puto. Fiquei sentado no muro por talvez uma hora, enquanto o vento soprava forte contra mim através dos grandes espaços que separam os prédios aqui. Meditei, escrevi e li tentando matar o tempo e arranjar coragem; depois mexi-me, entrei e comecei a procurar pelos pisos.
+Faz um frio puto. Fiquei sentado no muro por talvez uma hora, enquanto o vento soprava forte contra de mim através dos grandes espaços que separam os prédios aqui. Meditei, escrevi e li tentando matar o tempo e arranjar coragem; depois mexi-me, entrei e comecei a procurar pelos pisos.
 
 É outro edifício, dizem-me. Estou outra vez cá fora ao frio; deveria ter trazido o casaco quente. Controlo a quadro pendurado à entrada.
 
@@ -18,7 +18,7 @@ O chat no telemóvel continua parado. Já é noite. Vou-me embora. No estacionam
 
 Há silêncio suficiente aqui. Desbloqueio o telefone. Respiro e carrego no ícone do microfone. Continuo a carregar.
 
-Pela maior parte gravo silêncios mas no final sinto-me melhor. Chamo o Uber.
+Pela maior parte gravo silêncios mas no final sinto-me melhor. Chamo um Uber.
 
 ***
 
@@ -46,11 +46,11 @@ Explico-lhe por alto sobre o encontro dois anos antes e sobre tudo o que se pass
 
 O motorista parece receoso mas eu insisto.
 
-"Se posso dizer a minha opinião, essa moça para mim é um pouco bipolar... Mas para mim você não deveria correr atrás dela".
+"Se posso dizer a minha opinião, essa moça para mim é um pouco bipolar... Mas para mim 'ocê não deveria correr atrás dela".
 
 "E deveria fazer o quê?"
 
-"Vai te divirtir! É verdade que quando a gente gosta, a gente gosta. Mas você está aqui na América do Sul, aproveita! Sai, toma um copo, curte um pouco..."
+"Vai te divirtir! É verdade que quando a gente gosta, a gente gosta. Mas 'ocê está aqui na América Latina, aproveita! Sai, toma um copo, curte um pouco..."
 
 "Acha que deveria cuidar de mim próprio?"
 
@@ -66,7 +66,7 @@ Cuidar de mim.
 
 ***
 
-O quarto estava debilmente iluminado. O centro estava ocupado por um colchão de casal deitado no chão, coberto por um lençol branco de papel-seda. Da aparelhagem portátil vinha um qualquer tipo de música relaxante que não consigo relembrar.
+O quarto estava fracamente iluminado. O centro estava ocupado por um colchão de casal deitado no chão, coberto por um lençol branco de papel-seda. Da aparelhagem portátil vinha um qualquer tipo de música relaxante que não consigo relembrar.
 
 A terapeuta cumprimentou-me, fez-me sentar e perguntou-me como encontrara o lugar e porquê estava lá. Começo a falar ao calhas sobre lembranças de infância e relacionamentos passados, até que chego ao sonho. Dou risadinhas nervosas enquanto lhe conto como acaba:
 "... Sinto a dor a explodir enquanto ela olha para mim com os olhos esbugalhados, espeta mais o dedo na minha carne e continua a repetir: <<Há muito medo aqui! Muito medo!>>".
@@ -87,10 +87,10 @@ Fecho os olhos.
 
 Mantive-os fechados por um tempo mesmo depois de tudo acabar. Tive que parar a respiração umas vezes para tentar juntar água na boca e engolir para humedecer-me a garganta seca.
 
-Enquanto o volume da música descia, voltei a tomar controlo sobre o meu corpo. Estava esmagado pelos sentimentos e queria abraçar a terapeuta. Podia ainda sentir as duas presências ao meu lado esquerdo e direito. Não tinham aparecido por vários meses e agora estavam de volta. Pareciam ter rebentado das minhas últimas costelas flutuantes quando as mãos da terapeuta as atingiram. Reconheci aquela masculina ao meu lado direito como sendo o meu avô. Os pontos de onde surgiram ainda dão cócegas: enquanto os toco rio dum riso pesado e tremo um pouco. Estou a experienciar um estado que apenas testemunhara em outrém. Algo feminino.
+Enquanto o volume da música descia, voltei a tomar controlo sobre o meu corpo. Estava esmagado pelos sentimentos e queria abraçar a terapeuta. Podia ainda sentir as duas presências ao meu lado esquerdo e direito. Não tinham aparecido por vários meses e agora estavam de volta. Pareciam ter rebentado das minhas últimas costelas flutuantes quando as mãos da terapeuta as alcançaram. Reconheci aquela masculina ao meu lado direito como sendo o meu avô. Os pontos de onde surgiram ainda dão cócegas: enquanto os toco rio dum riso pesado e tremo um pouco. Estou a experienciar um estado que apenas testemunhara em outrém. Algo feminino.
 Sinto-me inundar pela alegria. O coração está leve e aberto de clareza. Queria que todos podessem experimentar esta condição.
 
-A essência da minha experiência não foi física mas sim emocional. Durante a sessão senti uma dor lancinante pela perda dos entes amados. Não apenas as pessoas de que sentia falta, mas o nojo dos meus amigos, do meu pai e da minha família. Lamentei o avô que nunca conhecera (aquele cuja presência ainda pairava na sala) e bebi da dor que os meus pais devem ter vivido quando perderam os seus pais.
+A essência da minha experiência não foi física mas sim emocional. Durante a sessão senti uma dor lancinante pela perda dos entes amados. Não apenas as pessoas de que eu sentia falta, mas os lutos dos meus amigos, do meu pai e da minha família. Lamentei o avô que nunca conhecera (aquele cuja presência ainda pairava na sala) e bebi da dor que os meus pais devem ter vivido quando perderam os seus pais.
 
 "As pessoas desaparecem!"
 

@@ -18,7 +18,7 @@ La chat sul cellulare ancora tace. È già buio. Mi allontano. Nel parcheggio tr
 
 C'è abbastanza silenzio qui. Sblocco ancora il telefono: niente. Respiro e pigio l'icona del microfono. La tengo schiacciata.
 
-Registro soprattutto silenzi ma alla fine mi sento meglio. Chiamo l'Uber.
+Registro soprattutto silenzi ma alla fine mi sento meglio. Chiamo un Uber.
 
 ***
 
@@ -30,7 +30,7 @@ Registro soprattutto silenzi ma alla fine mi sento meglio. Chiamo l'Uber.
 
 Mi passa un bicchiere di plastica sigillato con la stagnola. È freddo ma non troppo. L'autista ha gli occhiali e i capelli brizzolati, tagliati corti.
 
-L'auto sta percorrendo un'avenida che taglia la città a metà. In un altro paese sarebbe un'autostrada. Sento sempre che si crea una specie di intimità a condividere l'auto. Alcune delle conversazioni migliori a Lisbona le ho fatte con i tassisti, anche da sobrio. Questo è il mio secondo Uber.
+L'auto sta percorrendo un'*avenida* che taglia la città a metà. In un altro paese sarebbe un'autostrada. Sento sempre che si crea una specie di intimità a condividere l'auto. Alcune delle conversazioni migliori a Lisbona le ho fatte con i tassisti, anche da sobrio. Questo è il mio secondo Uber.
 
 "La vuol sentire una storia?"
 
@@ -50,17 +50,17 @@ L'autista è titubante, ma io insisto.
 
 "E cosa dovrei fare?"
 
-"Si diverta! È vero che quando qualcuno ci piace, ci piace. Però lei è in Sud America, ne approfitti! Esca, vada a bere qualcosa, si diverta..."
+"Si diverta! È vero che quando qualcuno ci piace, ci piace. Però lei è in America Latina, ne approfitti! Esca, vada a bere qualcosa, si diverta..."
 
 "Dice che devo prendermi cura di me?"
 
-"Appunto, si prenda cura di lei. Mostri che si sta divertendo - ma senza parlare di altre donne".
+"Appunto, si prenda cura di Lei. Mostri che si sta divertendo - ma senza parlare di altre donne".
 
 Troppo tardi, penso.
 
 "Donne così, quando gli corri dietro, scappano ancora di più."
 
-Il perchè del comportamento di lei, che non riuscivo a comprendere durante quel viaggio in auto, lo capisco in parte solo ora che scrivo. Il mio perchè resta incomprensibile. 
+Il perché del comportamento di lei, che non riuscivo a comprendere durante quel viaggio in auto, lo capisco in parte solo ora che scrivo. Il mio perché resta incomprensibile. 
 
 Prendermi cura di me.
 
@@ -68,7 +68,7 @@ Prendermi cura di me.
 
 La stanza era illuminata debolmente. Il centro era occupato da un materasso a due piazze steso sul pavimento, coperto da un foglio bianco di carta seta. Dallo stereo portatile veniva qualche tipo di musica rilassante che non ricordo.
 
-La terapeuta mi salutò, mi fece sedere e mi chiese come avevo conosciuto il posto e perché ero là. Comincio a parlare a caso di ricordi d'infanzia e relazioni passate, finchè non arrivo al sogno. Ridacchio nervosamente mentre racconto come finisce:
+La terapeuta mi salutò, mi fece sedere e mi chiese come avevo conosciuto il posto e perché ero là. Comincio a parlare a caso di ricordi d'infanzia e relazioni passate, finché non arrivo al sogno. Ridacchio nervosamente mentre racconto come finisce:
 "... sento il dolore che esplode mentre lei mi fissa con gli occhi strabuzzati, preme il dito più a fondo nella mia carne e continua a ripetere: <<C'è un sacco di paura qui, un sacco di paura!>>".
 
 È lo stesso vecchio sogno che mi ha spinto a contattare Y. la prima volta. Tutto sembra collegato.
@@ -79,13 +79,13 @@ La terapeuta mi ascolta, mi chiede se sapessi già qualcosa sul Tantra quando ho
 
 "Dalla bocca?" 
 
-"Si. Dalla bocca."
+"Sì. Dalla bocca."
 
 Chiudo gli occhi.
 
 ***
 
-Li ho tenuti chiusi per un po' anche dopo che era tutto finito. Ho dovuto interrompere la respirazione un paio di volte per raccogliere un po' di saliva in bocca e ingoiarla per inumidirmi la gola secca. 
+Li ho tenuti chiusi per un po' anche dopo che era tutto finito. Ho dovuto interrompere la respirazione un paio di volte per raccogliere un po' di saliva in bocca e inghiottirla per inumidirmi la gola secca. 
 
 Mentre il volume della musica scendeva, ho recuperato controllo del mio corpo. Ero sopraffatto dai sentimenti e volevo abbracciare la terapeuta. Potevo ancora sentire le due presenze al mio fianco sinistro e destro. Non erano apparse per vari mesi e ora erano tornate. Sembravano essere uscite dalle ultime costole fluttuanti quando le mani della terapeuta le hanno raggiunte. Riconobbi quella maschile alla mia destra come mio nonno. Dai punti da cui sono emerse sento ancora il solletico: quando li tocco scoppio in una risata pesante e tremo un poco. Sono in uno stato che ho sempre solo visto in qualcun'altro. Qualcosa di femminile.
 Mi sento inondare dalla gioia. Il cuore è leggero e aperto con chiarezza. Vorrei che tutti potessero provare questa condizione.
